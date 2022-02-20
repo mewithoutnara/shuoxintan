@@ -151,8 +151,7 @@ Deep Simulator<br>
 
 <br>
 <br>
-
-[ _   _   _ ] <br>
+[ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
 by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0">⊷</a></b><br>
 14 Mar 2021<br>
 <br>
