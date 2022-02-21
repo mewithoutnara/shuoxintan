@@ -1,8 +1,13 @@
 ## Shuoxin Tan
+born in Beijing, working and living as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focus on sound topology, algorithmic acoustics and mathematical formalization.<br>
+<br>
+How to apply „purloined“ theoretical knowledge into artistic practice is her new curiosity. She approaches to work and perform between composition and improvisation, which often happen in special spaces, intertwined with the exploration of physical movement and auditory perception.<br>
+<br>
+Especially influenced by Lacanian topology - respectively the Borromean rings, she founded the network-music ensemble and research group [ _  _  _ ] together with Jia Liu in Karlsruhe and Song Li in London. The ensemble started during corona lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, using the programming language SuperCollider. Their research and practice embodies the new form of computer music performance with theoretical thinking. From the beginning of 2022, the ensemble got new member Marcin Pietruszewski and will go on studying the application of category theory in computer music, with an updated name [::].<br>
 <br>
 <br>
 
-**HAPPENING**
+**Events**
 
 <br>
 <br>
@@ -126,7 +131,7 @@ SUPERPANG<br>
 50933<br>
 <br>
 <br>
-<em>演会儿 Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
+<em>Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
 1 May 2021<br>
 50933<br>
 <br>
