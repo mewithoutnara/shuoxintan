@@ -91,7 +91,7 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <br>
 <br>
 
-## **EXHIBITIONS**
+## **Exhibitions**
 
 <br>
 <br>
@@ -115,7 +115,7 @@ Simultanhalle, Cologne<br>
 <br>
 <br>
 
-## **RELEASES**
+## **Releases**
 
 <br>
 <br>
@@ -158,7 +158,7 @@ Deep Simulator<br>
 <br>
 <br>
 
-## **INTERVIEW**
+## **Interview**
 
 <br>
 <br>
@@ -168,7 +168,7 @@ by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava
 <br>
 <br>
 
-## **WRITING | REPORT**
+## **Writing | Report**
 
 <br>
 <br>
