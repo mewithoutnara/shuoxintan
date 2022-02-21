@@ -1,13 +1,19 @@
-## Shuoxin Tan
-born in Beijing, working and living as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focus on sound topology, algorithmic acoustics and mathematical formalization.<br>
+
+
+                                                                                                               
+# Shuoxin Tan
+Born in Beijing, living in Cologne, working as a freelance composer and sound artist. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focus on sound topology, algorithmic acoustics and mathematical formalization.<br>
 <br>
-How to apply „purloined“ theoretical knowledge into artistic practice is her new curiosity. She approaches to work and perform between composition and improvisation, which often happen in special spaces, intertwined with the exploration of physical movement and auditory perception.<br>
+How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches to work and perform between composition and improvisation, which often happen in special spaces, intertwined with the exploration of physical movement and auditory perception.<br>
 <br>
-Especially influenced by Lacanian topology - respectively the Borromean rings, she founded the network-music ensemble and research group [ _  _  _ ] together with Jia Liu in Karlsruhe and Song Li in London. The ensemble started during corona lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, using the programming language SuperCollider. Their research and practice embodies the new form of computer music performance with theoretical thinking. From the beginning of 2022, the ensemble got new member Marcin Pietruszewski and will go on studying the application of category theory in computer music, with an updated name [::].<br>
+Influenced by Lacanian topology, namely the Borromean rings, she founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during corona lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, using the programming language SuperCollider. Their research and practice embodies the new form of computer music performance with theoretical thinking. From the beginning of 2022, the ensemble got new member [Marcin Pietruszewski](https://www.marcinpietruszewski.com/) and will go on studying the application of category theory in computer music, with an updated name [::].<br>
+<br>
+[bandcamp](https://mewithoutnara.bandcamp.com/)<br>
+[vimeo](https://vimeo.com/shuoxin)
 <br>
 <br>
 
-**Events**
+## **Events** 
 
 <br>
 <br>
@@ -32,7 +38,7 @@ Partikasaal, Robert Schumann Hochschule Düsseldorf<br>
 Ensemble [ _  _  _  ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 Premiere at HKCR Hong Kong Community Radio <b><a href="https://www.mixcloud.com/HKCR/_-_-_-30112021/">⊷</a></b> <br>
 30 Nov 2021<br>
-supported by Musikfonds / Neustart Kultur<br>
+supported by <em>Musikfonds / Neustart Kultur</em><br>
 <br>
 <br>
 <em>Subaru the Car</em> | A tribute to Robert Ashley<br>
@@ -45,7 +51,7 @@ On-site collaborative algorithmic network-music performance <br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 9 Sep 2021<br>
 Crypt, St. Michael, Cologne<br>
-commissioned by Ambientfestival <b><a href="https://ambient-festival.com/ensemble/">⊷</a></b><br>
+commissioned by <em>Ambientfestival</em> <b><a href="https://ambient-festival.com/ensemble/">⊷</a></b><br>
 <br>
 <br>
 <em>Der dritte Körper</em> | Research project Collaborative Algorithmic Network-music Performance<br>
@@ -53,7 +59,7 @@ Online-Premiere <b><a href="https://youtu.be/kFKrOwDuFDg">⊷</a></b><br>
 Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
 31 Aug 2021<br>
 Tower room, St. Michael, Cologne<br>
-supported by Initiative Freie Musik e.V. / Kulturamt der Stadt Köln<br>
+supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em><br>
 <br>
 <br>
 <em>Algopolis</em> | Live Code City 2021 <b><a href="https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s">⊷</a></b><br>
@@ -76,7 +82,7 @@ Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|
 <em>Protokoll des Spiegels</em> | Online essay-performance <b><a href="https://vimeo.com/475457244">⊷</a></b><br>
 Shuoxin Tan (in Cologne) / Mengfan Wang (in Beijing)<br>
 5/6 Nov 2020<br> 
-commissioned by Beijing Fringe Festival<br>
+commissioned by <em>Beijing Fringe Festival</em><br>
 <br>
 <br>
 <em>Imaginary Linkscape</em> | radio-network performance<br>
@@ -85,21 +91,21 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <br>
 <br>
 
-**EXHIBITIONS**
+## **EXHIBITIONS**
 
 <br>
 <br>
 <em>Der dritte Körper</em> | Sound exhibition<br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 May 2022<br>
-Project DIVFUSE micro media art gallery, London<br>
+Project <em>DIVFUSE</em> micro media art gallery, London<br>
 <br>
 <br>
 <em>Von anderen Räumen</em> | Sound exhibition<br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 25-27 Feb 2022<br>
-Project DIVFUSE micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
-supported by Musikfonds / Neustart Kultur<br>
+Project <em>DIVFUSE</em> micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
+supported by <em>Musikfonds / Neustart Kultur</em><br>
 <br>
 <br>
 <em>Zweistimmiger Vogel</em> <b><a href="https://vimeo.com/569388824">⊷</a></b><br>
@@ -109,7 +115,7 @@ Simultanhalle, Cologne<br>
 <br>
 <br>
 
-**RELEASES**
+## **RELEASES**
 
 <br>
 <br>
@@ -152,7 +158,7 @@ Deep Simulator<br>
 <br>
 <br>
 
-**INTERVIEW**
+## **INTERVIEW**
 
 <br>
 <br>
@@ -162,7 +168,7 @@ by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava
 <br>
 <br>
 
-**WRITING | REPORT**
+## **WRITING | REPORT**
 
 <br>
 <br>
@@ -181,7 +187,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 
-**"演会儿" - Unofficial performance series of computer music improvisation**
+## **"演会儿" | Play for a While - Unofficial performance series of computer music improvisation**
 
 <br>
 <br>
