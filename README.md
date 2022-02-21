@@ -2,11 +2,13 @@
 
                                                                                                                
 # Shuoxin Tan
-Born in Beijing, living in Cologne, working as a freelance composer and sound artist. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focus on sound topology, algorithmic acoustics and mathematical formalization.<br>
+Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
 <br>
-How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches to work and perform between composition and improvisation, which often happen in special spaces, intertwined with the exploration of physical movement and auditory perception.<br>
+How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception.<br>
 <br>
-Influenced by Lacanian topology, namely the Borromean rings, she founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during corona lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, using the programming language SuperCollider. Their research and practice embodies the new form of computer music performance with theoretical thinking. From the beginning of 2022, the ensemble got new member [Marcin Pietruszewski](https://www.marcinpietruszewski.com/) and will go on studying the application of category theory in computer music, with an updated name [::].<br>
+Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
+<br>
+At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszewski](https://www.marcinpietruszewski.com/). They will go on studying the application of category theory in computer music, with an updated name [::].<br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
 [vimeo](https://vimeo.com/shuoxin)
