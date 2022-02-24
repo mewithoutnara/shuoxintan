@@ -19,7 +19,7 @@ At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszews
 
 <br>
 <br>
-<em>As soft as possible...</em> | Algorithmic computer music performance  w/ Meyer Sound quadraphonic system<br>
+<em>As soft as possible...</em> | Algorithmic computer music performance  w/ Quadraphonic sound<br>
 18 Mar 2022<br>
 St. Aposteln, Cologne<br>
 <br>
@@ -31,7 +31,7 @@ Cafe OTO, London <b><a href="https://www.cafeoto.co.uk/events/li-song-ensemble-e
 <br>
 <br>
 <em>Flechten</em> | Instrumentalvorspiel <b><a href="https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing">⊷</a></b><br>
-5-min computer music improvisation of 3 sinwaves ascending from 220Hz to 8500Hz<br>
+6-min computer music improvisation of 3 sinwaves ascending from 220Hz to 8500Hz<br>
 8 Dec 2021<br>
 Partikasaal, Robert Schumann Hochschule Düsseldorf<br>
 <br>
