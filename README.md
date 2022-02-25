@@ -19,7 +19,7 @@ At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszews
 
 <br>
 <br>
-<em>As soft as possible...</em> | Algorithmic computer music performance  w/ Quadraphonic sound<br>
+<em>As soft as possible...</em> | Algorithmic computer music performance <br>
 18 Mar 2022<br>
 St. Aposteln, Cologne<br>
 <br>
@@ -164,7 +164,14 @@ Deep Simulator<br>
 
 <br>
 <br>
-[ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
+Ensemble [ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
+by Livia B Garcia <br>
+Project <em>DIVFUSE</em> micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
+supported by <em>Musikfonds / Neustart Kultur</em><br>
+26 Feb 2022<br>
+<br>
+<br>
+Ensemble [ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
 by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0">⊷</a></b><br>
 14 Mar 2021<br>
 <br>
