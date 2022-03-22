@@ -19,9 +19,9 @@ At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszews
 
 <br>
 <br>
-<em>As soft as possible...</em> | Algorithmic computer music performance <br>
+<em>As soft as possible...</em> | Algorithmic computer music composition and performance with multichannel-soundsystem <br>
 18 Mar 2022<br>
-St. Aposteln, Cologne<br>
+"Lange nacht der Kirchen" in St. Aposteln, Cologne<br>
 <br>
 <br>
 Collaborative Algorithmic Network-music Performance<br>
