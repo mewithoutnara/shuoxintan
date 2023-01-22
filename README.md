@@ -39,7 +39,7 @@ Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf<br>
 <br>
 <em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6">⊷</a></b><br>
 20 Okt 2022<br>
-Sparda’s Palastrauschen, Düsseldorf<br>
+Sparda’s Palastrauschen, Kunstpalast Düsseldorf<br>
 <br>
 <br>
 <em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.facebook.com/events/707250423689858/">⊷</a></b><br>
