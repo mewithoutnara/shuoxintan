@@ -22,6 +22,11 @@ Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)
 forestlimit, Tokyo <b><a href="https://www.forestlimit.com/event-details/compassion-through-algorithms">⊷</a></b><br>
 <br>
 <br>
+<em>Durch den Vorhang gehen</em> | electroacoustic composition and performance <b><a href="https://www.on-cologne.de/konzert-tan-molina-dt/">⊷</a></b><br>
+9 Nov 2022<br>
+ON Cologne, Cologne<br>
+<br>
+<br>
 <em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <b><a href="https://capital-g.github.io/xenakis-workgroup/concert.html">⊷</a></b><br>
 25 Okt 2022<br>
 Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf<br>
@@ -35,6 +40,11 @@ Sparda’s Palastrauschen, Düsseldorf<br>
 <em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.facebook.com/events/707250423689858/">⊷</a></b><br>
 25 Jun 2022<br>
 Galerie Richas Digest, Cologne<br>
+<br>
+<br>
+<em>Durch den Vorhang gehen</em> | electroacoustic composition and performance<br>
+20 May 2022<br>
+Partika-Saal, Robert Schumann Hochschule Düsseldorf<br>
 <br>
 <br>
 <em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and organ<br>
@@ -123,33 +133,33 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <em>Durch den Vorhang gehen 穿​过​屏​风</em> <b><a href="https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen">⊷</a></b><br>
 Shuoxin Tan, Natalia Molina<br>
 30 Aug 2022<br>
-Zoomin' Night<br>
+Zoomin' Night, China<br>
 <br>
 <br>
 <em>[ _ _ _ ]</em> <b><a href="https://e---e.bandcamp.com/album/-">⊷</a></b><br>
 Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
 3 Jun 2022<br>
-SUPERPANG<br>
+SUPERPANG, Italy<br>
 <br>
 <br>
 <em>Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
 1 May 2021<br>
-50933<br>
+50933, Germany<br>
 <br>
 <br>
 <em>Monotonia</em> <b><a href="https://mewithoutnara.bandcamp.com/album/monotonia">⊷</a></b><br>
 18 Jan 2021<br>
-50933<br>
+50933, Germany<br>
 <br>
 <br>
 <em>Nothing Important</em> <b><a href="https://mewithoutnara.bandcamp.com/album/nothing-important">⊷</a></b><br>
 24 Dec 2020<br>
-50933<br>
+50933, Germany<br>
 <br>
 <br>
 <em>Deep Simulator | Player's OST </em> <b><a href="https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost">⊷</a></b><br>
 23 Oct 2020<br>
-Deep Simulator<br>
+Deep Simulator, Germany<br>
 <br>
 <br>
 
