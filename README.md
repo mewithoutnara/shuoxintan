@@ -16,6 +16,12 @@ At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszews
 <br>
 
 ## **Events** 
+Compassion Through Algorithms, Algorave Tokyo<br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+27 Dec 2022<br>
+forestlimit, Tokyo <b><a href="https://www.forestlimit.com/event-details/compassion-through-algorithms">⊷</a></b><br>
+<br>
+<br>
 <em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <b><a href="https://capital-g.github.io/xenakis-workgroup/concert.html">⊷</a></b><br>
 25 Okt 2022<br>
 Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf<br>
@@ -31,9 +37,14 @@ Sparda’s Palastrauschen, Düsseldorf<br>
 Galerie Richas Digest, Cologne<br>
 <br>
 <br>
-<em>As soft as possible...</em> | Algorithmic computer music composition and performance with multichannel-soundsystem <br>
+<em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and organ<br>
+14 May 2022<br>
+church Neu St. Alban, Cologne<br>
+<br>
+<br>
+<em>As soft as possible...</em> | Algorithmic computer music composition and performance, quadrophonic<br>
 18 Mar 2022<br>
-"Lange nacht der Kirchen" in St. Aposteln, Cologne<br>
+"Lange nacht der Kirchen" in church St. Aposteln, Cologne<br>
 <br>
 <br>
 Collaborative Algorithmic Network-music Performance<br>
