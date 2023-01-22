@@ -195,7 +195,10 @@ Simultanhalle, Cologne<br>
 
 
 ## **Interview**
-
+»Articulated Network (with Ensemble [ _ _ _ ])«<br>
+by Shuoxin Tan <br>
+ON Podcast, Cologne <b><a href="https://www.on-cologne.de/en/shuoxin-tan-en/">⊷</a></b><br>
+Jun 2022<br>
 <br>
 <br>
 Ensemble [ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
