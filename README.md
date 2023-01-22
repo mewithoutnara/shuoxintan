@@ -97,10 +97,9 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 
 <br>
 <br>
-<em>Das letzte...</em> | cassette album<br>
-Computer, Flute, Piccolo, 2 microphones, 2 loudspeakers<br>
+<em>Durch den Vorhang gehen 穿​过​屏​风</em> <b><a href="https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen">⊷</a></b><br>
 Shuoxin Tan, Natalia Molina<br>
-June 2022<br>
+30 Aug 2022<br>
 Zoomin' Night<br>
 <br>
 <br>
