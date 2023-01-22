@@ -93,6 +93,44 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <br>
 <br>
 
+## **Releases**
+
+<br>
+<br>
+<em>Das letzte...</em> | cassette album<br>
+Computer, Flute, Piccolo, 2 microphones, 2 loudspeakers<br>
+Shuoxin Tan, Natalia Molina<br>
+June 2022<br>
+Zoomin' Night<br>
+<br>
+<br>
+<em>[ _ _ _ ]</em> <b><a href="https://e---e.bandcamp.com/album/-">⊷</a></b><br>
+Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
+3 Jun 2022<br>
+SUPERPANG<br>
+<br>
+<br>
+<em>Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
+1 May 2021<br>
+50933<br>
+<br>
+<br>
+<em>Monotonia</em> <b><a href="https://mewithoutnara.bandcamp.com/album/monotonia">⊷</a></b><br>
+18 Jan 2021<br>
+50933<br>
+<br>
+<br>
+<em>Nothing Important</em> <b><a href="https://mewithoutnara.bandcamp.com/album/nothing-important">⊷</a></b><br>
+24 Dec 2020<br>
+50933<br>
+<br>
+<br>
+<em>Deep Simulator | Player's OST </em> <b><a href="https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost">⊷</a></b><br>
+23 Oct 2020<br>
+Deep Simulator<br>
+<br>
+<br>
+
 ## **Exhibitions**
 
 <br>
@@ -117,48 +155,7 @@ Simultanhalle, Cologne<br>
 <br>
 <br>
 
-## **Releases**
 
-<br>
-<br>
-<em>Das letzte...</em> | cassette album<br>
-Computer, Flute, Piccolo, 2 microphones, 2 loudspeakers<br>
-Shuoxin Tan, Natalia Molina<br>
-June 2022<br>
-Zoomin' Night<br>
-<br>
-<br>
-2 live performance pieces<br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-May 2022<br>
-SUPERPANG<br>
-<br>
-<br>
-<em>Soundkarte, Braunsfeld, Köln</em> <b><a href="https://soundcloud.com/postpopnara/sets/soundkarte-braunsfeld-koln">⊷</a></b><br>
-26 Jul 2021<br>
-50933<br>
-<br>
-<br>
-<em>Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
-1 May 2021<br>
-50933<br>
-<br>
-<br>
-<em>Monotonia</em> <b><a href="https://mewithoutnara.bandcamp.com/album/monotonia">⊷</a></b><br>
-18 Jan 2021<br>
-50933<br>
-<br>
-<br>
-<em>Nothing Important</em> <b><a href="https://mewithoutnara.bandcamp.com/album/nothing-important">⊷</a></b><br>
-24 Dec 2020<br>
-50933<br>
-<br>
-<br>
-<em>Deep Simulator | Player's OST </em> <b><a href="https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost">⊷</a></b><br>
-23 Oct 2020<br>
-Deep Simulator<br>
-<br>
-<br>
 
 ## **Interview**
 
