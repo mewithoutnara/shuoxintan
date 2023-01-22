@@ -16,7 +16,19 @@ At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszews
 <br>
 
 ## **Events** 
-
+<em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <b><a href="https://capital-g.github.io/xenakis-workgroup/concert.html">⊷</a></b><br>
+25 Okt 2022<br>
+Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf<br>
+<br>
+<br>
+<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6">⊷</a></b><br>
+20 Okt 2022<br>
+Sparda’s Palastrauschen, Düsseldorf<br>
+<br>
+<br>
+<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.facebook.com/events/707250423689858/">⊷</a></b><br>
+25 Jun 2022<br>
+Galerie Richas Digest, Cologne<br>
 <br>
 <br>
 <em>As soft as possible...</em> | Algorithmic computer music composition and performance with multichannel-soundsystem <br>
