@@ -8,7 +8,7 @@ How to apply „purloined“ theoretical knowledge into artistic practice is her
 <br>
 Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
-At the beginning of 2022, the ensemble welcomed a new member [Marcin Pietruszewski](https://www.marcinpietruszewski.com/). They will go on studying the application of category theory in computer music, with an updated name [::].<br>
+
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
 [vimeo](https://vimeo.com/shuoxin)
@@ -82,7 +82,7 @@ supported by <em>Musikfonds / Neustart Kultur</em><br>
 <br>
 <br>
 <em>Subaru the Car</em> | A tribute to Robert Ashley<br>
-a concert with real-time programmed player piano, piano player and 4 voices<br>
+concert with real-time programmed player piano, piano player and 4 voices<br>
 25 Nov 2021<br>
 Tonstudio, Hochschule Düsseldorf<br>
 <br>
