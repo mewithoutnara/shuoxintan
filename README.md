@@ -22,7 +22,7 @@ Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)
 forestlimit, Tokyo <b><a href="https://www.forestlimit.com/event-details/compassion-through-algorithms">⊷</a></b><br>
 <br>
 <br>
-<em>Fremdes Wasser</em> | 1-min mini composition of shortwave receiver and underwater recording<b><a href="https://www.on-cologne.de/kurzetagekalender-dt/">⊷</a></b><br>
+<em>Fremdes Wasser</em> | mini composition  shortwave receiver and underwater recording<b><a href="https://www.on-cologne.de/kurzetagekalender-dt/">⊷</a></b><br>
 3 Dec 2022<br>
 NOIES Kurze Tage Kalender, NOIES Musikszene NRW / Klang und Realität (Institut für Musik und Medien Düsseldorf) / Umland Records<br>
 <br>
