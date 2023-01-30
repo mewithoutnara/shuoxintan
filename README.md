@@ -2,7 +2,7 @@
 
                                                                                                                
 # Shuoxin Tan
-Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
+Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
 <br>
 How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception.<br>
 <br>
@@ -11,7 +11,7 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
-[vimeo](https://vimeo.com/shuoxin)
+[vimeo](https://vimeo.com/shuoxin)<br>
 <br>
 <br>
 
