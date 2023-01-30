@@ -8,14 +8,27 @@ How to apply „purloined“ theoretical knowledge into artistic practice is her
 <br>
 Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
-
 <br>
+<br>
+
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
 [vimeo](https://vimeo.com/shuoxin)<br>
+
 <br>
 <br>
 
 ## **Events** 
+
+Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
+1 Mar 2023 <br>
+Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b>
+<br>
+<br>
+<em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and sound objects <br>
+4 Feb 2023<br>
+Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
+<br>
+<br>
 Compassion Through Algorithms, Algorave Tokyo<br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 27 Dec 2022<br>
