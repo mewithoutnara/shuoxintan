@@ -24,6 +24,21 @@ Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
 Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b>
 <br>
 <br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+26 Feb 2023 <br>
+Spanners, Edinburgh
+<br>
+<br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+25 Feb 2023 <br>
+Waverly Bar, Edinburgh
+<br>
+<br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+24 Feb 2023 <br>
+La Chunky, Glasgow
+<br>
+<br>
 <em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and sound objects <br>
 4 Feb 2023<br>
 Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
