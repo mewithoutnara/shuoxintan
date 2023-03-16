@@ -33,17 +33,11 @@ Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music
 <br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
 26 Feb 2023 <br>
-Spanners, London
-<br>
-<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+Spanners, London <br>
 25 Feb 2023 <br>
-Waverly Bar, Edinburgh
-<br>
-<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+Waverly Bar, Edinburgh <br>
 24 Feb 2023 <br>
-La Chunky, Glasgow
+La Chunky, Glasgow <br>
 <br>
 <br>
 <em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and sound objects <br>
