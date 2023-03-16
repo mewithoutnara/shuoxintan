@@ -18,7 +18,14 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 <br>
 
 ## **Events** 
-
+<br>
+<br>
+Collaborative Algorithmic Network-music Performance<br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+21 April 2023<br>
+ICLC, Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
+<br>
+<br>
 Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
 1 Mar 2023 <br>
 Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b>
@@ -26,7 +33,7 @@ Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music
 <br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
 26 Feb 2023 <br>
-Spanners, Edinburgh
+Spanners, London
 <br>
 <br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
@@ -160,7 +167,12 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <br>
 
 ## **Releases**
-
+<br>
+<br>
+<em>from two roots</em> <b><a href="https://infanttree.bandcamp.com/album/from-two-roots">⊷</a></b><br>
+Shuoxin Tan<br>
+1 Mar 2023<br>
+Infant Tree, London<br>
 <br>
 <br>
 <em>Durch den Vorhang gehen 穿​过​屏​风</em> <b><a href="https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen">⊷</a></b><br>
@@ -198,6 +210,12 @@ Deep Simulator, Germany<br>
 
 ## **Exhibitions**
 
+<br>
+<br>
+<em>Der dritte Körper</em> | Video Dokumentation exhibition<br>
+Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+20-23 April 2023<br>
+ICLC, Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
 <br>
 <br>
 <em>Der dritte Körper</em> | Sound exhibition<br>
