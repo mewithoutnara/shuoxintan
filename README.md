@@ -21,17 +21,17 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 <br>
 <br>
 Collaborative Algorithmic Network-music Performance<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+Ensemble [ _  _  _ ] | Song Li(Utrecht), Jia Liu(Utrecht), Shuoxin Tan(Beijing) |<br>
 21 April 2023<br>
 ICLC, Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
 <br>
 <br>
 Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
 1 Mar 2023 <br>
-Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b>
+Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b> <br>
 <br>
 <br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) | <br>
+Ensemble [ _  _  _ ] | Song Li(UK), Jia Liu(UK), Shuoxin Tan(UK) | <br>
 26 Feb 2023 <br>
 Spanners, London <br>
 25 Feb 2023 <br>
@@ -46,7 +46,7 @@ Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
 <br>
 <br>
 Compassion Through Algorithms, Algorave Tokyo<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+Ensemble [ _  _  _ ] | Song Li(Tokyo), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 27 Dec 2022<br>
 forestlimit, Tokyo <b><a href="https://www.forestlimit.com/event-details/compassion-through-algorithms">⊷</a></b><br>
 <br>
@@ -117,7 +117,7 @@ Tonstudio, Hochschule Düsseldorf<br>
 <br>
 <br>
 On-site collaborative algorithmic network-music performance <br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+Ensemble [ _  _  _ ] | Song Li(Cologne), Jia Liu(Cologne), Shuoxin Tan(Cologne) |<br>
 9 Sep 2021<br>
 Crypt, St. Michael, Cologne<br>
 commissioned by <em>Ambientfestival</em> <b><a href="https://ambient-festival.com/ensemble/">⊷</a></b><br>
@@ -148,12 +148,7 @@ Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|
 19 Feb 2021<br>
 <br>
 <br>
-<em>Protokoll des Spiegels</em> | Online essay-performance <b><a href="https://vimeo.com/475457244">⊷</a></b><br>
-Shuoxin Tan (in Cologne) / Mengfan Wang (in Beijing)<br>
-5/6 Nov 2020<br> 
-commissioned by <em>Beijing Fringe Festival</em><br>
-<br>
-<br>
+
 <em>Imaginary Linkscape</em> | radio-network performance<br>
 Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in Germany)<br>
 18 Jul 2020<br>
@@ -161,6 +156,7 @@ Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in G
 <br>
 
 ## **Releases**
+
 <br>
 <br>
 <em>from two roots</em> <b><a href="https://infanttree.bandcamp.com/album/from-two-roots">⊷</a></b><br>
@@ -232,10 +228,28 @@ Simultanhalle, Cologne<br>
 <br>
 <br>
 
+## **Theater**
 
+<em>叙事喷泉 Narrative Fountain</em> | Dance Theater <br>
+Choreography / Text / Voice: Mengfan Wang <br>
+Dance: Min Qian <br>
+Composition / Installation: Shuoxin Tan <br>
+14/16 April 2023 <br>
+West Bund Museum, Shanghai <br>
+commissioned by <em> Centre Pompidou x West Bund Museum Project </em><br>
+with the support of <em> Kering | Women In Motion </em><br>
+<br>
+<br>
+<em>镜像记录 Protokoll des Spiegels</em> | Online essay-performance <b><a href="https://vimeo.com/475457244">⊷</a></b><br>
+Shuoxin Tan (in Cologne) / Mengfan Wang (in Beijing)<br>
+5/6 Nov 2020<br> 
+commissioned by <em>Beijing Fringe Festival</em><br>
+<br>
+<br>
 
 ## **Interview**
-»Articulated Network (with Ensemble [ _ _ _ ])«<br>
+
+»<em>Articulated Network</em>« (with Ensemble [ _ _ _ ]) <br>
 by Shuoxin Tan <br>
 ON Podcast, Cologne <b><a href="https://www.on-cologne.de/en/shuoxin-tan-en/">⊷</a></b><br>
 Jun 2022<br>
@@ -253,7 +267,6 @@ by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava
 14 Mar 2021<br>
 <br>
 <br>
-
 ## **Writing | Report**
 
 <br>
