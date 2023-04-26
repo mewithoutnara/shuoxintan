@@ -150,12 +150,12 @@ Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|
 <br>
 
 <em>Imaginary Linkscape</em> | radio-network performance<br>
-Shuoxin Tan (in Beijing), Waltraud Blischke, Students of Music Informatics (in Germany)<br>
+Shuoxin Tan (Beijing), Waltraud Blischke, Students of Music Informatics (Germany)<br>
 18 Jul 2020<br>
 <br>
 <br>
 
-## **Releases**
+## **Release**
 
 <br>
 <br>
@@ -198,7 +198,7 @@ Deep Simulator, Germany<br>
 <br>
 <br>
 
-## **Exhibitions**
+## **Exhibition**
 
 <br>
 <br>
