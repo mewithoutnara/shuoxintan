@@ -19,10 +19,22 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 
 ## **Events** 
 
-Collaborative Algorithmic Network-music Performance<br>
+
+Duo ((oppai)) |Shuoxin Tan, Natalia Molina| <br>
+27 Jul 2023 <br>
+Das Sommerfest, Erkrather Str. 365, Düsseldorf <b><a href="https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11">⊷</a></b><br>
+<br>
+<br>
+STROMSPIESSER XII - Konzertreihe für Live-Elektronische Musik <br>
+Shuoxin Tan / Jung an Tagen / Hacklader/Hatam <br>
+30 Jul 2023<br>
+Tresor.West, Dortmund <b><a href="https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/">⊷</a></b><br>
+<br>
+<br>
+ICLC - International Conference on Live Coding 2023<br>
 Ensemble [ _  _  _ ] | Song Li(Utrecht), Jia Liu(Utrecht), Shuoxin Tan(Beijing) |<br>
 21 April 2023<br>
-ICLC, Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
+Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
 <br>
 <br>
 Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
