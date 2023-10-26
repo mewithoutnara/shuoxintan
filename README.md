@@ -18,8 +18,7 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 <br>
 
 ## **Events** 
-<br>
-<br>
+
 Collaborative Algorithmic Network-music Performance<br>
 Ensemble [ _  _  _ ] | Song Li(Utrecht), Jia Liu(Utrecht), Shuoxin Tan(Beijing) |<br>
 21 April 2023<br>
@@ -157,8 +156,6 @@ Shuoxin Tan (Beijing), Waltraud Blischke, Students of Music Informatics (Germany
 
 ## **Release**
 
-<br>
-<br>
 <em>叙事喷泉 Narrative Fountain</em> <b><a href="https://mewithoutnara.bandcamp.com/album/narrative-fountain">⊷</a></b><br>
 Shuoxin Tan<br>
 2 Jun 2023<br>
@@ -206,8 +203,6 @@ Deep Simulator, Germany<br>
 
 ## **Exhibition**
 
-<br>
-<br>
 <em>Der dritte Körper</em> | Video Dokumentation exhibition<br>
 Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
 20-23 April 2023<br>
