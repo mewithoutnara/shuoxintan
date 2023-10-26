@@ -159,6 +159,12 @@ Shuoxin Tan (Beijing), Waltraud Blischke, Students of Music Informatics (Germany
 
 <br>
 <br>
+<em>叙事喷泉 Narrative Fountain</em> <b><a href="https://mewithoutnara.bandcamp.com/album/narrative-fountain">⊷</a></b><br>
+Shuoxin Tan<br>
+2 Jun 2023<br>
+50933, Germany<br>
+<br>
+<br>
 <em>from two roots</em> <b><a href="https://infanttree.bandcamp.com/album/from-two-roots">⊷</a></b><br>
 Shuoxin Tan<br>
 1 Mar 2023<br>
@@ -249,20 +255,26 @@ commissioned by <em>Beijing Fringe Festival</em><br>
 
 ## **Interview**
 
+»<em>collaboration and communication through network music</em>« (with Ensemble [ _ _ _ ]) <br>
+by Cis De Gendt <br>
+default#9 x 3345, Centrale Bibliotheek Den Haag <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a></b><br>
+2 Oct 2023<br>
+<br>
+<br>
 »<em>Articulated Network</em>« (with Ensemble [ _ _ _ ]) <br>
 by Shuoxin Tan <br>
 ON Podcast, Cologne <b><a href="https://www.on-cologne.de/en/shuoxin-tan-en/">⊷</a></b><br>
 Jun 2022<br>
 <br>
 <br>
-Ensemble [ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
+Ensemble [ _ _ _ ]<br>
 by Livia B Garcia <br>
 Project <em>DIVFUSE</em> micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
 supported by <em>Musikfonds / Neustart Kultur</em><br>
 26 Feb 2022<br>
 <br>
 <br>
-Ensemble [ _ _ _ ] (LI SONG 李松, LIU JIA 刘佳, TAN SHUOXIN 谭硕欣)<br>
+Ensemble [ _ _ _ ]<br>
 by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0">⊷</a></b><br>
 14 Mar 2021<br>
 <br>
