@@ -20,18 +20,18 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 ## **Events** 
 
 Solo Performance Computer music <br>
-2 Oct 2023 <br><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
+2 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
 Centrale Bibliotheek, The Hague <br>
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
-4 Oct 2023 <br><a href="https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532">⊷</a><br>
+4 Oct 2023 <b><a href="https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532">⊷</a><br>
 Gemeinde, Cologne <br>
-2 Oct 2023 <br><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
+2 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
 Centrale Bibliotheek, The Hague <br>
-1 Oct 2023 <br><a href="https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio">⊷</a><br>
+1 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio">⊷</a><br>
 The Grey Space in the Middle, The Hague <br>
-30 Sept 2023 <br><a href="https://www.facebook.com/events/1293999874840336">⊷</a><br>
+30 Sept 2023 <b><a href="https://www.facebook.com/events/1293999874840336">⊷</a><br>
 iv project space, Brussels <br>
 30 Sept 2023 <br>
 Kiosk Radio, Brussels <br>
