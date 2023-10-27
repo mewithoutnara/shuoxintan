@@ -19,7 +19,25 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 
 ## **Events** 
 
-
+Solo Performance Computer music <br>
+2 Oct 2023 <br>
+Centrale Bibliotheek, The Hague <br>
+<br>
+<br>
+Ensemble [ _  _  _ ] <br>
+4 Oct 2023 <br>
+Gemeinde, Cologne <br>
+2 Oct 2023 <br>
+Centrale Bibliotheek, The Hague <br>
+1 Oct 2023 <br>
+The Grey Space in the Middle, The Hague <br>
+1 Oct 2023 <br>
+iv project space, Brussels <br>
+30 Sept 2023 <br>
+Kiosk Radio, Brussels <br>
+30 Sept 2023 <br>
+<br>
+<br>
 Duo ((oppai)) |Shuoxin Tan, Natalia Molina| <br>
 27 Jul 2023 <br>
 Das Sommerfest, Erkrather Str. 365, Düsseldorf <b><a href="https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11">⊷</a></b><br>
