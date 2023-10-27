@@ -31,16 +31,15 @@ Gemeinde, Cologne <br>
 Centrale Bibliotheek, The Hague <br>
 1 Oct 2023 <br>
 The Grey Space in the Middle, The Hague <br>
-1 Oct 2023 <br>
+30 Sept 2023 <br>
 iv project space, Brussels <br>
 30 Sept 2023 <br>
 Kiosk Radio, Brussels <br>
-30 Sept 2023 <br>
 <br>
 <br>
 Duo ((oppai)) |Shuoxin Tan, Natalia Molina| <br>
 27 Jul 2023 <br>
-Das Sommerfest, Erkrather Str. 365, Düsseldorf <b><a href="https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11">⊷</a></b><br>
+Das Sommerfest Klang und Realität, Erkrather Str. 365, Düsseldorf <b><a href="https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11">⊷</a></b><br>
 <br>
 <br>
 STROMSPIESSER XII - Konzertreihe für Live-Elektronische Musik <br>
