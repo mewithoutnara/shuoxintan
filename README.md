@@ -19,47 +19,47 @@ Influenced by Lacanian topology, namely the Borromean rings, she has founded the
 
 ## **Events** 
 
-Solo Performance Computer music <br>
-2 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
-Centrale Bibliotheek, The Hague <br>
+Solo performance of computer music <br>
+2 Oct 2023 <br>
+Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
-4 Oct 2023 <b><a href="https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532">⊷</a><br>
-Gemeinde, Cologne <br>
-2 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a><br>
-Centrale Bibliotheek, The Hague <br>
-1 Oct 2023 <b><a href="https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio">⊷</a><br>
-The Grey Space in the Middle, The Hague <br>
-30 Sept 2023 <b><a href="https://www.facebook.com/events/1293999874840336">⊷</a><br>
-iv project space, Brussels <br>
+4 Oct 2023 <br>
+Gemeinde, Cologne **[.](https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532)** <br>
+2 Oct 2023 <br>
+Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
+1 Oct 2023 <br>
+The Grey Space in the Middle, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio)** <br>
+30 Sept 2023 <br>
+iv project space, Brussels **[.](https://www.facebook.com/events/1293999874840336)** <br>
 30 Sept 2023 <br>
 Kiosk Radio, Brussels <br>
 <br>
 <br>
-Duo ((oppai)) |Shuoxin Tan, Natalia Molina| <br>
+Duo <em>((oppai))</em> |Shuoxin Tan, Natalia Molina| <br>
 27 Jul 2023 <br>
-Das Sommerfest Klang und Realität, Erkrather Str. 365, Düsseldorf <b><a href="https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11">⊷</a></b><br>
+<em>Sommerfest Klang und Realität</em>, Erkrather Str. 365, Düsseldorf **[.](https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11)** <br>
 <br>
 <br>
-STROMSPIESSER XII - Konzertreihe für Live-Elektronische Musik <br>
-Shuoxin Tan / Jung an Tagen / Hacklader/Hatam <br>
+Solo performance of computer music <br>
+<em>STROMSPIESSER XII</em> - Konzertreihe für Live-Elektronische Musik <br>
 30 Jul 2023<br>
-Tresor.West, Dortmund <b><a href="https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/">⊷</a></b><br>
+Tresor.West, Dortmund **[.](https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/)** <br>
 <br>
 <br>
-ICLC - International Conference on Live Coding 2023<br>
-Ensemble [ _  _  _ ] | Song Li(Utrecht), Jia Liu(Utrecht), Shuoxin Tan(Beijing) |<br>
+<em>ICLC</em> - International Conference on Live Coding 2023<br>
+Ensemble [ _  _  _ ] <br>
 21 April 2023<br>
-Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
+Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
 <br>
 <br>
-Shuoxin Tan / soft tissue / Jia Liu / Andreae/Salter/Song <br>
+Solo performance of computer music <br>
 1 Mar 2023 <br>
-Hunderd Years Gallery, London <b><a href="http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/">⊷</a></b> <br>
+Hunderd Years Gallery, London **[.](http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/)** <br>
 <br>
 <br>
-Ensemble [ _  _  _ ] | Song Li(UK), Jia Liu(UK), Shuoxin Tan(UK) | <br>
+Ensemble [ _  _  _ ] <br>
 26 Feb 2023 <br>
 Spanners, London <br>
 25 Feb 2023 <br>
@@ -73,188 +73,181 @@ La Chunky, Glasgow <br>
 Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
 <br>
 <br>
-Compassion Through Algorithms, Algorave Tokyo<br>
-Ensemble [ _  _  _ ] | Song Li(Tokyo), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
+Ensemble [ _  _  _ ] <br>
+<em> Compassion Through Algorithms, Algorave Tokyo </em> <br>
 27 Dec 2022<br>
-forestlimit, Tokyo <b><a href="https://www.forestlimit.com/event-details/compassion-through-algorithms">⊷</a></b><br>
+forestlimit, Tokyo **[.](https://www.forestlimit.com/event-details/compassion-through-algorithms)** <br>
 <br>
 <br>
-<em>Fremdes Wasser</em> | mini composition  shortwave receiver and underwater recording<b><a href="https://www.on-cologne.de/kurzetagekalender-dt/">⊷</a></b><br>
+<em>Fremdes Wasser</em> | mini composition  shortwave receiver and underwater recording <br>
+<em>NOIES Kurze Tage Kalender</em> **[.](https://www.on-cologne.de/kurzetagekalender-dt/)** <br>
 3 Dec 2022<br>
-NOIES Kurze Tage Kalender, NOIES Musikszene NRW / Klang und Realität (Institut für Musik und Medien Düsseldorf) / Umland Records<br>
+NOIES Musikszene NRW / Institut für Musik und Medien Düsseldorf / Umland Records<br>
 <br>
 <br>
-<em>Durch den Vorhang gehen</em> | electroacoustic composition and performance <b><a href="https://www.on-cologne.de/konzert-tan-molina-dt/">⊷</a></b><br>
+<em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
 9 Nov 2022<br>
-ON Cologne, Cologne<br>
+ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)** <br>
 <br>
 <br>
-<em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <b><a href="https://capital-g.github.io/xenakis-workgroup/concert.html">⊷</a></b><br>
-25 Okt 2022<br>
-Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf<br>
+<em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <br>
+25 Okt 2022 <br>
+Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf **[.](https://capital-g.github.io/xenakis-workgroup/concert.html)** <br>
 <br>
 <br>
-<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6">⊷</a></b><br>
-20 Okt 2022<br>
-Sparda’s Palastrauschen, Kunstpalast Düsseldorf<br>
+<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
+20 Okt 2022 <br>
+<em>Sparda’s Palastrauschen</em>, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)** <br>
 <br>
 <br>
-<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <b><a href="https://www.facebook.com/events/707250423689858/">⊷</a></b><br>
+<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
 25 Jun 2022<br>
-Galerie Richas Digest, Cologne<br>
+Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)** <br>
 <br>
 <br>
-<em>Durch den Vorhang gehen</em> | electroacoustic composition and performance<br>
-20 May 2022<br>
-Partika-Saal, Robert Schumann Hochschule Düsseldorf<br>
+<em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
+Lichtbogen - Neue Musik - Klang Raum Resonanz <br>
+20 May 2022 <br>
+Partika-Saal, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)** <br>
 <br>
 <br>
-<em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and organ<br>
-14 May 2022<br>
-church Neu St. Alban, Cologne<br>
+<em>Fremdes Wasser</em> | improvisation and performance, shortwave receiver and organ <br>
+14 May 2022 <br>
+church Neu St. Alban, Cologne <br>
 <br>
 <br>
-<em>As soft as possible...</em> | Algorithmic computer music composition and performance, quadrophonic<br>
-18 Mar 2022<br>
-"Lange nacht der Kirchen" in church St. Aposteln, Cologne<br>
-<br>
-<br>
-Collaborative Algorithmic Network-music Performance<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
-14 Dec 2021<br>
-Cafe OTO, London <b><a href="https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume">⊷</a></b><br>
-<br>
-<br>
-<em>Flechten</em> | Instrumentalvorspiel <b><a href="https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing">⊷</a></b><br>
-6-min computer music improvisation of 3 sinwaves ascending from 220Hz to 8500Hz<br>
-8 Dec 2021<br>
-Partikasaal, Robert Schumann Hochschule Düsseldorf<br>
-<br>
-<br>
-<em>Route</em> | Collaborative Algorithmic Network-music Performance<br>
-Ensemble [ _  _  _  ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
-Premiere at HKCR Hong Kong Community Radio <b><a href="https://www.mixcloud.com/HKCR/_-_-_-30112021/">⊷</a></b> <br>
-30 Nov 2021<br>
-supported by <em>Musikfonds / Neustart Kultur</em><br>
-<br>
-<br>
-<em>Subaru the Car</em> | A tribute to Robert Ashley<br>
-concert with real-time programmed player piano, piano player and 4 voices<br>
-25 Nov 2021<br>
-Tonstudio, Hochschule Düsseldorf<br>
-<br>
-<br>
-On-site collaborative algorithmic network-music performance <br>
-Ensemble [ _  _  _ ] | Song Li(Cologne), Jia Liu(Cologne), Shuoxin Tan(Cologne) |<br>
-9 Sep 2021<br>
-Crypt, St. Michael, Cologne<br>
-commissioned by <em>Ambientfestival</em> <b><a href="https://ambient-festival.com/ensemble/">⊷</a></b><br>
-<br>
-<br>
-<em>Der dritte Körper</em> | Research project Collaborative Algorithmic Network-music Performance<br>
-Online-Premiere <b><a href="https://youtu.be/kFKrOwDuFDg">⊷</a></b><br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-31 Aug 2021<br>
-Tower room, St. Michael, Cologne<br>
-supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em><br>
-<br>
-<br>
-<em>Algopolis</em> | Live Code City 2021 <b><a href="https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s">⊷</a></b><br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-14 May 2021<br>
-Ljubljana<br>
-<br>
-<br>
-Collaborative algorithmic music performance <b><a href="https://ava.hkbu.edu.hk/en/events/___">⊷</a></b><br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-14 Mar 2021<br>
-HKBU AVA Kai Tak Campus, Hong Kong <br>
-<br>
-<br>
-<em>TOPLAP</em> | Transnodal 2021 <b><a href="https://transnodal.toplap.org/">⊷</a></b><br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-19 Feb 2021<br>
+<em>As soft as possible...</em> | Algorithmic computer music performance, quadrophonic <br>
+18 Mar 2022 <br>
+<em>Lange nacht der Kirchen</em><br>
+church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)** <br>
 <br>
 <br>
 
-<em>Imaginary Linkscape</em> | radio-network performance<br>
-Shuoxin Tan (Beijing), Waltraud Blischke, Students of Music Informatics (Germany)<br>
-18 Jul 2020<br>
+Ensemble [ _  _  _ ] <br>
+14 Dec 2021 <br>
+Cafe OTO, London **[.](https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume)** <br>
+<br>
+<br>
+<em>Flechten</em> | Algorithmic computer music improvisation <br>
+8 Dec 2021<br>
+Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)** <br>
+<br>
+<br>
+<em>Route</em> | Collaborative Algorithmic Network-music Performance <br>
+Ensemble [ _  _  _  ] <br>
+Premiere at HKCR Hong Kong Community Radio  <br>
+30 Nov 2021 <br>
+supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.mixcloud.com/HKCR/_-_-_-30112021/)** <br>
+<br>
+<br>
+<em>Subaru the Car</em> | A tribute concert to Robert Ashley <br>
+real-time programmed player piano, piano player and 4 voices <br>
+25 Nov 2021 <br>
+Tonstudio, Hochschule Düsseldorf <br>
+<br>
+<br>
+Ensemble [ _  _  _ ] <br>
+9 Sep 2021 <br>
+Crypt, St. Michael, Cologne <br>
+commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)** <br>
+<br>
+<br>
+<em>Der dritte Körper</em> | Research project <em>Collaborative Algorithmic Network-music Performance</em> <br>
+Ensemble [ _  _  _ ] <br>
+31 Aug 2021 <br>
+Tower room, St. Michael, Cologne <br>
+supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)** <br>
+<br>
+<br>
+Ensemble [ _  _  _ ] <br>
+<em>Algopolis</em> | Live Code City 2021 <br>
+14 May 2021 <br>
+Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)** <br>
+<br>
+<br>
+Ensemble [ _  _  _ ] <br>
+14 Mar 2021 <br>
+HKBU AVA Kai Tak Campus, Hong Kong **[.](https://ava.hkbu.edu.hk/en/events/___)** <br>
+<br>
+<br>
+Ensemble [ _  _  _ ] <br>
+<em>TOPLAP</em> | Transnodal 2021 <br>
+19 Feb 2021 **[.](https://transnodal.toplap.org/)** <br>
 <br>
 <br>
 
 ## **Release**
 
-<em>叙事喷泉 Narrative Fountain</em> <b><a href="https://mewithoutnara.bandcamp.com/album/narrative-fountain">⊷</a></b><br>
-Shuoxin Tan<br>
-2 Jun 2023<br>
-50933, Germany<br>
+<em>叙事喷泉 Narrative Fountain</em> <br>
+Shuoxin Tan <br>
+2 Jun 2023 <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/narrative-fountain)** <br>
 <br>
 <br>
-<em>from two roots</em> <b><a href="https://infanttree.bandcamp.com/album/from-two-roots">⊷</a></b><br>
-Shuoxin Tan<br>
-1 Mar 2023<br>
-Infant Tree, London<br>
+<em>from two roots</em> <br>
+Shuoxin Tan <br>
+1 Mar 2023 <br>
+Infant Tree, London **[.](https://infanttree.bandcamp.com/album/from-two-roots)** <br>
 <br>
 <br>
-<em>Durch den Vorhang gehen 穿​过​屏​风</em> <b><a href="https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen">⊷</a></b><br>
-Shuoxin Tan, Natalia Molina<br>
-30 Aug 2022<br>
-Zoomin' Night, China<br>
+<em>Durch den Vorhang gehen 穿​过​屏​风</em> <br>
+Shuoxin Tan / Natalia Molina <br>
+30 Aug 2022 <br>
+Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)** <br>
 <br>
 <br>
-<em>[ _ _ _ ]</em> <b><a href="https://e---e.bandcamp.com/album/-">⊷</a></b><br>
+<em>[ _ _ _ ]</em> <br>
 Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-3 Jun 2022<br>
-SUPERPANG, Italy<br>
+3 Jun 2022 <br>
+SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)** <br>
 <br>
 <br>
-<em>Simultanhalle, April 30, 2021</em> <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
-1 May 2021<br>
-50933, Germany<br>
+<em>Simultanhalle, April 30, 2021</em> <br>
+1 May 2021 <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
 <br>
 <br>
-<em>Monotonia</em> <b><a href="https://mewithoutnara.bandcamp.com/album/monotonia">⊷</a></b><br>
-18 Jan 2021<br>
-50933, Germany<br>
+<em>Monotonia</em> <br>
+18 Jan 2021 <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/monotonia)** <br>
 <br>
 <br>
-<em>Nothing Important</em> <b><a href="https://mewithoutnara.bandcamp.com/album/nothing-important">⊷</a></b><br>
-24 Dec 2020<br>
-50933, Germany<br>
+<em>Nothing Important</em> <br>
+24 Dec 2020 <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/nothing-important)** <br>
 <br>
 <br>
-<em>Deep Simulator | Player's OST </em> <b><a href="https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost">⊷</a></b><br>
-23 Oct 2020<br>
-Deep Simulator, Germany<br>
+<em>Deep Simulator | Player's OST </em> <br>
+23 Oct 2020 <br>
+Deep Simulator, Germany **[.](https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost)** <br>
 <br>
 <br>
 
 ## **Exhibition**
 
-<em>Der dritte Körper</em> | Video Dokumentation exhibition<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
-20-23 April 2023<br>
-ICLC, Utrecht <b><a href="https://iclc.toplap.org/2023/timetable.html">⊷</a></b><br>
+<em>Der dritte Körper</em> | Video exhibition <br>
+Ensemble [ _  _  _ ] <br>
+20-23 April 2023 <br>
+ICLC, Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
 <br>
 <br>
-<em>Der dritte Körper</em> | Sound exhibition<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
-May 2022<br>
-Project <em>DIVFUSE</em> micro media art gallery, London<br>
+<em>Der dritte Körper</em> | Sound & Visual Exhibition <br>
+Ensemble [ _  _  _ ] <br>
+May 2022 <br>
+<em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/06/26/der-dritte-korper-_-_-_-li-song-jia-liu-shuoxin-tan/)** <br>
 <br>
 <br>
-<em>Von anderen Räumen</em> | Sound exhibition<br>
-Ensemble [ _  _  _ ] | Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne) |<br>
-25-27 Feb 2022<br>
-Project <em>DIVFUSE</em> micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
-supported by <em>Musikfonds / Neustart Kultur</em><br>
+<em>Von anderen Räumen</em> | Sound Exhibition <br>
+Ensemble [ _  _  _ ] <br>
+25-27 Feb 2022 <br>
+<em>DIVFUSE</em> media art gallery, London <br>
+supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
 <br>
 <br>
-<em>Zweistimmiger Vogel</em> <b><a href="https://vimeo.com/569388824">⊷</a></b><br>
-Site-specific sound installation of algorithmic composition based on sinewaves<br>
-26 Jun 2021<br>
-Simultanhalle, Cologne<br>
+<em>Zweistimmiger Vogel</em> <br>
+Site-specific algorithmic sound installation <br>
+26 Jun 2021 <br>
+Simultanhalle, Cologne **[.](https://vimeo.com/569388824)** <br>
 <br>
 <br>
 
@@ -270,10 +263,10 @@ commissioned by <em> Centre Pompidou x West Bund Museum Project </em><br>
 with the support of <em> Kering | Women In Motion </em><br>
 <br>
 <br>
-<em>镜像记录 Protokoll des Spiegels</em> | Online essay-performance <b><a href="https://vimeo.com/475457244">⊷</a></b><br>
-Shuoxin Tan (in Cologne) / Mengfan Wang (in Beijing)<br>
-5/6 Nov 2020<br> 
-commissioned by <em>Beijing Fringe Festival</em><br>
+<em>镜像记录 Protokoll des Spiegels</em> | live-streaming essay-performance <br>
+Shuoxin Tan (Cologne) / Mengfan Wang (Beijing) <br>
+5/6 Nov 2020 <br> 
+commissioned by <em>Beijing Fringe Festival</em> **[.](https://vimeo.com/475457244)** <br>
 <br>
 <br>
 
@@ -281,32 +274,30 @@ commissioned by <em>Beijing Fringe Festival</em><br>
 
 »<em>collaboration and communication through network music</em>« (with Ensemble [ _ _ _ ]) <br>
 by Cis De Gendt <br>
-default#9 x 3345, Centrale Bibliotheek Den Haag <b><a href="https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with">⊷</a></b><br>
-2 Oct 2023<br>
+2 Oct 2023 <br>
+default#9 x 3345, Centrale Bibliotheek Den Haag **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
 <br>
 <br>
-»<em>Articulated Network</em>« (with Ensemble [ _ _ _ ]) <br>
+<em>Articulated Network</em> (with Ensemble [ _ _ _ ]) <br>
 by Shuoxin Tan <br>
-ON Podcast, Cologne <b><a href="https://www.on-cologne.de/en/shuoxin-tan-en/">⊷</a></b><br>
-Jun 2022<br>
+Jun 2022 <br>
+ON Podcast, Cologne **[.](https://www.on-cologne.de/en/shuoxin-tan-en/)** <br>
 <br>
 <br>
-Ensemble [ _ _ _ ]<br>
+Ensemble [ _ _ _ ] <br>
 by Livia B Garcia <br>
-Project <em>DIVFUSE</em> micro media art gallery, London <b><a href="https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/">⊷</a></b><br>
-supported by <em>Musikfonds / Neustart Kultur</em><br>
-26 Feb 2022<br>
-<br>
-<br>
-Ensemble [ _ _ _ ]<br>
-by Edward Sanderson <b><a href="https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0">⊷</a></b><br>
-14 Mar 2021<br>
-<br>
-<br>
-## **Writing | Report**
+26 Feb 2022 <br>
+<em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
+supported by <em>Musikfonds / Neustart Kultur</em> <br>
 
 <br>
 <br>
+Ensemble [ _ _ _ ] <br>
+14 Mar 2021<br>
+by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0)** <br>
+<br>
+<br>
+## **Writing | Report**
 <em>»Let it be ...«</em> Ein Bericht über James Tenney und seinen Essay »John Cage and the Theory of Harmony« (1983)<br>
 a Report for Seminar<br>
 <em>Mediale Zeitformen II</em> Marcus Schmickler<br>
@@ -322,28 +313,25 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 
-## **"演会儿" | Play for a While - Unofficial performance series of computer music improvisation**
-
+## **<em>"演会儿" | Play for a While</em> - site-specific computer music improvisation**
+20 Jun 2021 <br>
+St. Michael, Cologne **[.](https://vimeo.com/565346425)** <br>
 <br>
 <br>
-20 Jun 2021<br>
-St. Michael, Cologne <b><a href="https://vimeo.com/565346425">⊷</a></b><br>
+30 Apr 2021 <br>
+Simultanhalle, Cologne **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
 <br>
 <br>
-30 Apr 2021<br>
-Simultanhalle, Cologne <b><a href="https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021">⊷</a></b><br>
+15 Jan 2021 <br>
+Kath. Kirche Herz Jesu, Cologne <br>
 <br>
 <br>
-15 Jan 2021<br>
-Kath. Kirche Herz Jesu, Cologne<br>
+26 Dec 2020 <br>
+Schlossgarten, Karlsruhe **[.](https://vimeo.com/manage/videos/501871189)** <br>
 <br>
 <br>
-26 Dec 2020<br>
-Schlossgarten, Karlsruhe <b><a href="https://vimeo.com/manage/videos/501871189">⊷</a></b><br>
-<br>
-<br>
-12 Dec 2020<br>
-Japanischer Garten, Düsseldorf<br>
+12 Dec 2020 <br>
+Japanischer Garten, Düsseldorf <br>
 
 
 
