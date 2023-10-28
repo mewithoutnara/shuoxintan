@@ -293,8 +293,9 @@ supported by <em>Musikfonds / Neustart Kultur</em> <br>
 <br>
 <br>
 Ensemble [ _ _ _ ] <br>
-14 Mar 2021<br>
+
 by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0)** <br>
+14 Mar 2021 <br>
 <br>
 <br>
 ## **Writing | Report**
