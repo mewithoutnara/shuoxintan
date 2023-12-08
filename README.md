@@ -1,6 +1,6 @@
+<img src="(https://github.com/mewithoutnara/shuoxintan/blob/main/photos/files/shuoxin%20tan-photo%20by%20voidance.jpg )" height="2640" width="3520">
 
-
-                                                                                                               
+                                                                                                              
 # Shuoxin Tan
 Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
 <br>
