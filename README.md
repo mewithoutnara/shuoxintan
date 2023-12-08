@@ -2,6 +2,7 @@
 
                                                                                                               
 # Shuoxin Tan
+
 Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
 <br>
 How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception.<br>
@@ -9,9 +10,9 @@ How to apply „purloined“ theoretical knowledge into artistic practice is her
 Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
 <br>
-Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen).
+Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008).
 <br>
-
+<br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
 [vimeo](https://vimeo.com/shuoxin)<br>
 
@@ -24,8 +25,6 @@ Solo performance of computer music <br>
 26 Nov 2023 <br>
 674FM, Ubierring 13, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
 <br>
-<br>
-Solo performance of computer music <br>
 2 Oct 2023 <br>
 Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
 <br>
