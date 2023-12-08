@@ -21,6 +21,11 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 Solo performance of computer music <br>
+26 Nov 2023 <br>
+674FM, Ubierring 13, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
+<br>
+<br>
+Solo performance of computer music <br>
 2 Oct 2023 <br>
 Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
 <br>
