@@ -1,4 +1,4 @@
-<img src="https://github.com/mewithoutnara/shuoxintan/blob/main/photos/files/shuoxin%20tan-photo%20by%20voidance.jpg" height="1320" width="1560">
+<img src="https://github.com/mewithoutnara/shuoxintan/blob/main/photos/files/shuoxin%20tan-photo%20by%20voidance.jpg" height="660" width="880">
 
                                                                                                               
 # Shuoxin Tan
