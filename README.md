@@ -92,57 +92,57 @@ NOIES Musikszene NRW / Institut für Musik und Medien Düsseldorf / Umland Recor
 <br>
 <em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
 9 Nov 2022<br>
-ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)** <br>
+ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)**
 <br>
 <br>
 <em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <br>
 25 Okt 2022 <br>
-Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf **[.](https://capital-g.github.io/xenakis-workgroup/concert.html)** <br>
+Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf **[.](https://capital-g.github.io/xenakis-workgroup/concert.html)**
 <br>
 <br>
 <em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
 20 Okt 2022 <br>
-<em>Sparda’s Palastrauschen</em>, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)** <br>
+<em>Sparda’s Palastrauschen</em>, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)**
 <br>
 <br>
 <em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
 25 Jun 2022<br>
-Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)** <br>
+Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)**
 <br>
 <br>
 <em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
 Lichtbogen - Neue Musik - Klang Raum Resonanz <br>
 20 May 2022 <br>
-Partika-Saal, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)** <br>
+Partika-Saal, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)**
 <br>
 <br>
 <em>Fremdes Wasser</em> | improvisation and performance, shortwave receiver and organ <br>
 14 May 2022 <br>
-church Neu St. Alban, Cologne <br>
+church Neu St. Alban, Cologne
 <br>
 <br>
 <em>As soft as possible...</em> | Algorithmic computer music performance, quadrophonic <br>
 18 Mar 2022 <br>
 <em>Lange nacht der Kirchen</em><br>
-church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)** <br>
+church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)**
 <br>
 <br>
 
 Ensemble [ _  _  _ ] <br>
 14 Dec 2021 <br>
-Cafe OTO, London **[.](https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume)** <br>
+Cafe OTO, London **[.](https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume)**
 <br>
 <br>
 <em>Flechten</em> | Algorithmic computer music improvisation <br>
 8 Dec 2021<br>
-Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)** <br>
+Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)**
 <br>
 <br>
 <em>Route</em> | Collaborative Algorithmic Network-music Performance <br>
 Ensemble [ _  _  _  ] <br>
 Premiere at HKCR Hong Kong Community Radio  <br>
 30 Nov 2021 <br>
-supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.mixcloud.com/HKCR/_-_-_-30112021/)** <br>
+supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.mixcloud.com/HKCR/_-_-_-30112021/)**
 <br>
 <br>
 <em>Subaru the Car</em> | A tribute concert to Robert Ashley <br>
@@ -154,30 +154,30 @@ Tonstudio, Hochschule Düsseldorf <br>
 Ensemble [ _  _  _ ] <br>
 9 Sep 2021 <br>
 Crypt, St. Michael, Cologne <br>
-commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)** <br>
+commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)**
 <br>
 <br>
 <em>Der dritte Körper</em> | Research project <em>Collaborative Algorithmic Network-music Performance</em> <br>
 Ensemble [ _  _  _ ] <br>
 31 Aug 2021 <br>
 Tower room, St. Michael, Cologne <br>
-supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)** <br>
+supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)**
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
 <em>Algopolis</em> | Live Code City 2021 <br>
 14 May 2021 <br>
-Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)** <br>
+Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)**
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
 14 Mar 2021 <br>
-HKBU AVA Kai Tak Campus, Hong Kong **[.](https://ava.hkbu.edu.hk/en/events/___)** <br>
+HKBU AVA Kai Tak Campus, Hong Kong **[.](https://ava.hkbu.edu.hk/en/events/___)**
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
 <em>TOPLAP</em> | Transnodal 2021 <br>
-19 Feb 2021 **[.](https://transnodal.toplap.org/)** <br>
+19 Feb 2021 **[.](https://transnodal.toplap.org/)**
 <br>
 <br>
 
@@ -186,48 +186,42 @@ Ensemble [ _  _  _ ] <br>
 <em>叙事喷泉 Narrative Fountain</em> <br>
 Shuoxin Tan <br>
 2 Jun 2023 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/narrative-fountain)** <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/narrative-fountain)**
 <br>
 <br>
 <em>from two roots</em> <br>
 Shuoxin Tan <br>
 1 Mar 2023 <br>
-Infant Tree, London **[.](https://infanttree.bandcamp.com/album/from-two-roots)** <br>
+Infant Tree, London **[.](https://infanttree.bandcamp.com/album/from-two-roots)**
 <br>
 <br>
 <em>Durch den Vorhang gehen 穿​过​屏​风</em> <br>
 Shuoxin Tan / Natalia Molina <br>
 30 Aug 2022 <br>
-Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)** <br>
+Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)**
 <br>
 <br>
 <em>[ _ _ _ ]</em> <br>
 Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
 3 Jun 2022 <br>
-SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)** <br>
+SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)**
 <br>
 <br>
 <em>Simultanhalle, April 30, 2021</em> <br>
 1 May 2021 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
+50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)**
 <br>
 <br>
-<em>Monotonia</em> <br>
-18 Jan 2021 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/monotonia)** <br>
+<em>Pillow</em> <br>
+2015 <br>
+D Force Records, China
 <br>
 <br>
-<em>Nothing Important</em> <br>
-24 Dec 2020 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/nothing-important)** <br>
+<em>Various – An Anthology Of Chinese Experimental Music 1992-2008</em> <br>
+2009 <br>
+Sub Rosa, Belgium **[.](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008)** <br>
 <br>
 <br>
-<em>Deep Simulator | Player's OST </em> <br>
-23 Oct 2020 <br>
-Deep Simulator, Germany **[.](https://mewithoutnara.bandcamp.com/album/deepsimulator-players-ost)** <br>
-<br>
-<br>
-
 ## **Exhibition**
 
 <em>Der dritte Körper</em> | Video exhibition <br>
