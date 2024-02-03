@@ -312,8 +312,18 @@ Epistemische Medien, IMM, RSH<br>
 13 Apr 2021 <br>
 <br>
 <br>
-
-## **<em>"演会儿" | Play for a While</em> - site-specific computer music improvisation**
+## **Scholarships and Residencies**
+Sound Arguments | Orpheus Instituut Ghent, 2024 <br>
+Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
+ON - Neue Musik e.V. Köln, 2022 <br>
+Stockhausen-Konzerte und -Kurse Kürten | Stockhausen-Stiftung für Musik, 2022 <br>
+Stipendienprogramm des Ministeriums für Kultur und Wissenschaft des Landes Nordrhein-Westfalen, 2022 <br>
+Musikfonds, 2021 <br>
+Initiative Freie Musik e.V. Köln, 2021 <br>
+DAAD, 2021 <br>
+<br>
+<br>
+## **<em>"演会儿" | Play for a While</em> - site-specific computer music improvisation during covid lockdown**
 20 Jun 2021 <br>
 St. Michael, Cologne **[.](https://vimeo.com/565346425)** <br>
 <br>
