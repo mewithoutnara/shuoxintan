@@ -313,6 +313,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
+Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 <br>
 Sound Arguments | Orpheus Instituut Ghent, 2024 <br>
 Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
 ON - Neue Musik e.V. Köln, 2022 <br>
