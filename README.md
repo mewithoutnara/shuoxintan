@@ -10,7 +10,7 @@ How to apply „purloined“ theoretical knowledge into artistic practice is her
 Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
 <br>
-Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008).
+Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [Noise of Cologne](https://www.reihe-m.de/?page_id=1023).
 <br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
@@ -314,7 +314,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 ## **Scholarships and Residencies**
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 <br>
-Sound Arguments | Orpheus Instituut Ghent, 2024 <br>
+Sound Arguments | Orpheus Instituut Gent, 2024 <br>
 Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
 ON - Neue Musik e.V. Köln, 2022 <br>
 Stockhausen-Konzerte und -Kurse Kürten | Stockhausen-Stiftung für Musik, 2022 <br>
