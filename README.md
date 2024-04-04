@@ -21,61 +21,50 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-Solo performance of computer music <br>
-26 Nov 2023 <br>
-674FM, Ubierring 13, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
-<br>
-2 Oct 2023 <br>
-Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
+Computer music performance <br>
+14 Jun 2024, Honigfabrik, Hamburg <br>
 <br>
 <br>
-Ensemble [ _  _  _ ] <br>
-4 Oct 2023 <br>
-Gemeinde, Cologne **[.](https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532)** <br>
-2 Oct 2023 <br>
-Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
-1 Oct 2023 <br>
-The Grey Space in the Middle, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio)** <br>
-30 Sept 2023 <br>
-iv project space, Brussels **[.](https://www.facebook.com/events/1293999874840336)** <br>
-30 Sept 2023 <br>
-Kiosk Radio, Brussels <br>
+<em>Voice$ and Piano</em> | 4 miniature compositions for player piano <br>
+25 Apr 2024, <em>Player Piano Event</em>, Robert Schumann Hochschule Düsseldorf <br>
 <br>
 <br>
-Duo <em>((oppai))</em> |Shuoxin Tan, Natalia Molina| <br>
-27 Jul 2023 <br>
-<em>Sommerfest Klang und Realität</em>, Erkrather Str. 365, Düsseldorf **[.](https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11)** <br>
-<br>
-<br>
-Solo performance of computer music <br>
-<em>STROMSPIESSER XII</em> - Konzertreihe für Live-Elektronische Musik <br>
-30 Jul 2023<br>
-Tresor.West, Dortmund **[.](https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/)** <br>
-<br>
-<br>
-<em>ICLC</em> - International Conference on Live Coding 2023<br>
-Ensemble [ _  _  _ ] <br>
-21 April 2023<br>
-Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
-<br>
-<br>
-Solo performance of computer music <br>
-1 Mar 2023 <br>
-Hunderd Years Gallery, London **[.](http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/)** <br>
+Computer music performance <br>
+26 Nov 2023, 674FM, Ubierring 13, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
+2 Oct 2023, <em>default#9 x 3345 the hague</em>, Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
+30 Jul 2023, <em>STROMSPIESSER XII</em> Konzertreihe für Live-Elektronische Musik, Tresor.West, Dortmund **[.](https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/)** <br>
+1 Mar 2023, Hunderd Years Gallery, London **[.](http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/)** <br>
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
-26 Feb 2023 <br>
-Spanners, London <br>
-25 Feb 2023 <br>
-Waverly Bar, Edinburgh <br>
-24 Feb 2023 <br>
-La Chunky, Glasgow <br>
+4 Oct 2023, Gemeinde, Cologne **[.](https://musik-in-koeln.de/de_DE/konzertkalender/impakt-bruitkasten-28.17672532)** <br>
+2 Oct 2023, Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
+1 Oct 2023, The Grey Space in the Middle, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-8-01102023-with-valerio)** <br>
+30 Sep 2023, iv project space, Brussels **[.](https://www.facebook.com/events/1293999874840336)** <br>
+30 Sep 2023, Kiosk Radio, Brussels <br>
+21 Apr 2023, <em>ICLC-International Conference on Live Coding</em>, Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
+26 Feb 2023, Spanners, London <br>
+25 Feb 2023, Waverly Bar, Edinburgh <br>
+24 Feb 2023, La Chunky, Glasgow <br>
 <br>
 <br>
-<em>Fremdes Wasser</em> | improvisation and performance of shortwave receiver and sound objects <br>
-4 Feb 2023<br>
-Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
+Duo <em>((oppai))</em><br>
+<em>Dinner for One</em> | performance with kinetic sound objects <br>
+27 Jul 2023, Sommerfest Klang und Realität, Düsseldorf **[.](https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11)** <br>
+<em>Durch den Vorhang gehen</em> | Album release concert<br>
+9 Nov 2022, ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)** <br>
+<em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
+20 May 2022, <em>Lichtbogen - Neue Musik - Klang Raum Resonanz</em>, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)** <br>
+<br>
+<br>
+<em>Fremdes Wasser</em> | research project of composition and improvisation with objects <br>
+#3, solo performance of shortwave receiver, acoustic instruments and sound objects <br>
+4 Feb 2023, <em>Akustische Kunst</em>, Former ZF Freidrichshafen AG industrial factory, Düsseldorf <br>
+#2, miniature composition for shortwave receiver and underwater recording <br>
+3 Dec 2022, <em>NOIES Kurze Tage Kalender</em> **[.](https://www.on-cologne.de/kurzetagekalender-dt/)** <br>
+commissioned by NOIES Musikszene NRW / Institut für Musik und Medien Düsseldorf / Umland Records<br>
+#1, shortwave receiver and organ <br>
+14 May 2022, <em>Akustische Kunst</em>, church Neu St. Alban, Cologne <br>
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
@@ -84,230 +73,155 @@ Ensemble [ _  _  _ ] <br>
 forestlimit, Tokyo **[.](https://www.forestlimit.com/event-details/compassion-through-algorithms)** <br>
 <br>
 <br>
-<em>Fremdes Wasser</em> | mini composition  shortwave receiver and underwater recording <br>
-<em>NOIES Kurze Tage Kalender</em> **[.](https://www.on-cologne.de/kurzetagekalender-dt/)** <br>
-3 Dec 2022<br>
-NOIES Musikszene NRW / Institut für Musik und Medien Düsseldorf / Umland Records<br>
+<em>from two roots</em> | Algorithmic computer music composition <br>
+#3, 8 channel version, 16min <br>
+25 Okt 2022, Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf **[.](https://capital-g.github.io/xenakis-workgroup/concert.html)** <br>
+#2, quadrophonic version, 20min <br>
+20 Okt 2022, Sparda’s Palastrauschen, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)** <br>
+#1, quadrophonic version, 20min <br>
+25 Jun 2022, Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)** <br>
 <br>
 <br>
-<em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
-9 Nov 2022<br>
-ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)**
+<em>As soft as possible...</em> | quadrophonic computer music composition<br>
+18 Mar 2022, <em>Lange nacht der Kirchen</em>, church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)** <br>
 <br>
 <br>
-<em>from two roots</em> | Algorithmic computer music composition, eight-channel, 16min <br>
-25 Okt 2022 <br>
-Iannis Xenakis Workgroup Concert, Institut für Musik und Medien Düsseldorf **[.](https://capital-g.github.io/xenakis-workgroup/concert.html)**
+<em>Flechten</em> | computer music composition <br>
+8 Dec 2021, Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)** <br>
 <br>
 <br>
-<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
-20 Okt 2022 <br>
-<em>Sparda’s Palastrauschen</em>, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)**
-<br>
-<br>
-<em>from two roots</em> | Algorithmic computer music composition, quadrophonic, 20min <br>
-25 Jun 2022<br>
-Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)**
-<br>
-<br>
-<em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
-Lichtbogen - Neue Musik - Klang Raum Resonanz <br>
-20 May 2022 <br>
-Partika-Saal, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)**
-<br>
-<br>
-<em>Fremdes Wasser</em> | improvisation and performance, shortwave receiver and organ <br>
-14 May 2022 <br>
-church Neu St. Alban, Cologne
-<br>
-<br>
-<em>As soft as possible...</em> | Algorithmic computer music performance, quadrophonic <br>
-18 Mar 2022 <br>
-<em>Lange nacht der Kirchen</em><br>
-church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)**
-<br>
-<br>
-
 Ensemble [ _  _  _ ] <br>
-14 Dec 2021 <br>
-Cafe OTO, London **[.](https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume)**
-<br>
-<br>
-<em>Flechten</em> | Algorithmic computer music improvisation <br>
-8 Dec 2021<br>
-Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)**
-<br>
-<br>
+14 Dec 2021, Cafe OTO, London **[.](https://www.cafeoto.co.uk/events/li-song-ensemble-ecka-mordecai-malvern-brume)** <br>
 <em>Route</em> | Collaborative Algorithmic Network-music Performance <br>
-Ensemble [ _  _  _  ] <br>
-Premiere at HKCR Hong Kong Community Radio  <br>
-30 Nov 2021 <br>
-supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.mixcloud.com/HKCR/_-_-_-30112021/)**
+30 Nov 2021, Premiere at HKCR Hong Kong Community Radio  <br>
+supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.mixcloud.com/HKCR/_-_-_-30112021/)** <br>
 <br>
 <br>
-<em>Subaru the Car</em> | A tribute concert to Robert Ashley <br>
+<em>Subaru the Car</em> | A composition tribute to Robert Ashley <br>
 real-time programmed player piano, piano player and 4 voices <br>
-25 Nov 2021 <br>
-Tonstudio, Hochschule Düsseldorf <br>
+25 Nov 2021, Tonstudio, Hochschule Düsseldorf <br>
 <br>
 <br>
 Ensemble [ _  _  _ ] <br>
-9 Sep 2021 <br>
-Crypt, St. Michael, Cologne <br>
-commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)**
-<br>
-<br>
+9 Sep 2021, Crypt, St. Michael, Cologne <br>
+commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)** <br>
 <em>Der dritte Körper</em> | Research project <em>Collaborative Algorithmic Network-music Performance</em> <br>
-Ensemble [ _  _  _ ] <br>
-31 Aug 2021 <br>
-Tower room, St. Michael, Cologne <br>
-supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)**
-<br>
-<br>
-Ensemble [ _  _  _ ] <br>
+31 Aug 2021, Tower room, St. Michael, Cologne <br>
+supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)** <br>
 <em>Algopolis</em> | Live Code City 2021 <br>
-14 May 2021 <br>
-Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)**
-<br>
-<br>
-Ensemble [ _  _  _ ] <br>
-14 Mar 2021 <br>
-HKBU AVA Kai Tak Campus, Hong Kong **[.](https://ava.hkbu.edu.hk/en/events/___)**
-<br>
-<br>
-Ensemble [ _  _  _ ] <br>
+14 May 2021, Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)** <br>
+<em>协作算法音乐表演</em> | Collaborative Algorithmic Music Performance <br>
+14 Mar 2021, HKBU AVA Kai Tak Campus, Hong Kong **[.](https://ava.hkbu.edu.hk/en/events/___)** <br>
 <em>TOPLAP</em> | Transnodal 2021 <br>
-19 Feb 2021 **[.](https://transnodal.toplap.org/)**
+19 Feb 2021 **[.](https://transnodal.toplap.org/)** <br>
 <br>
 <br>
-
 ## **Release**
-
+<em>Noise of Cologne 3</em> <br>
+2024, ReiheM, Germany **[.](https://www.reihe-m.de/?page_id=1023)** <br>
+<br>
 <em>叙事喷泉 Narrative Fountain</em> <br>
 Shuoxin Tan <br>
-2 Jun 2023 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/narrative-fountain)**
-<br>
+2 Jun 2023, 50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/narrative-fountain)** <br>
 <br>
 <em>from two roots</em> <br>
 Shuoxin Tan <br>
-1 Mar 2023 <br>
-Infant Tree, London **[.](https://infanttree.bandcamp.com/album/from-two-roots)**
-<br>
+1 Mar 2023, Infant Tree, London **[.](https://infanttree.bandcamp.com/album/from-two-roots)** <br>
 <br>
 <em>Durch den Vorhang gehen 穿​过​屏​风</em> <br>
 Shuoxin Tan / Natalia Molina <br>
-30 Aug 2022 <br>
-Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)**
-<br>
+30 Aug 2022, Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)**<br>
 <br>
 <em>[ _ _ _ ]</em> <br>
 Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
-3 Jun 2022 <br>
-SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)**
-<br>
+3 Jun 2022, SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)**<br>
 <br>
 <em>Simultanhalle, April 30, 2021</em> <br>
-1 May 2021 <br>
-50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)**
-<br>
+Shuoxin Tan <br>
+1 May 2021, 50933, Germany **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)**<br>
 <br>
 <em>Pillow</em> <br>
-2015 <br>
-D Force Records, China
-<br>
+Shuoxin Tan <br>
+2015, D Force Records, China<br>
 <br>
 <em>Various – An Anthology Of Chinese Experimental Music 1992-2008</em> <br>
-2009 <br>
-Sub Rosa, Belgium **[.](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008)** <br>
+2009, Sub Rosa, Belgium **[.](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008)** <br>
 <br>
 <br>
 ## **Exhibition**
 
+<em>Minority Algorithm</em> | A bit, A prompt, aaajiao <br> 
+commissioned composition for multimedia installation <br> 
+26 Apr-25 May 2024, SETAREH, Berlin **[.](https://www.indexberlin.com/artists/list/27943/aaajiao)** <br>
+<br>
 <em>Der dritte Körper</em> | Video exhibition <br>
 Ensemble [ _  _  _ ] <br>
-20-23 April 2023 <br>
-ICLC, Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
-<br>
+20-23 April 2023, ICLC, Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
 <br>
 <em>Der dritte Körper</em> | Sound & Visual Exhibition <br>
 Ensemble [ _  _  _ ] <br>
-May 2022 <br>
-<em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/06/26/der-dritte-korper-_-_-_-li-song-jia-liu-shuoxin-tan/)** <br>
-<br>
+May 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/06/26/der-dritte-korper-_-_-_-li-song-jia-liu-shuoxin-tan/)** <br>
 <br>
 <em>Von anderen Räumen</em> | Sound Exhibition <br>
 Ensemble [ _  _  _ ] <br>
-25-27 Feb 2022 <br>
-<em>DIVFUSE</em> media art gallery, London <br>
-supported by <em>Musikfonds / Neustart Kultur</em> **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
+25-27 Feb 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
+supported by <em>Musikfonds / Neustart Kultur</em> <br>
+<br>
+<em>Zweistimmiger Vogel</em> | site-specific algorithmic sound installation <br>
+26 Jun 2021, Simultanhalle, Cologne **[.](https://vimeo.com/569388824)** <br>
+<br>
+<em>Deep Simulator</em> | DEEP SIMULATOR, aaajiao <br>
+commissioned composition for multimedia installation <br>
+5 Nov 2020-30 Mar 2021, Castello di Rivoli Museo d'Arte Contemporanea, Italy **[.](https://www.castellodirivoli.org/comunicato/aaajiao-deep-simulator-illy-present-future-prize-2019-exhibition/)** <br>
 <br>
 <br>
-<em>Zweistimmiger Vogel</em> <br>
-Site-specific algorithmic sound installation <br>
-26 Jun 2021 <br>
-Simultanhalle, Cologne **[.](https://vimeo.com/569388824)** <br>
-<br>
-<br>
-
 ## **Theater**
 
 <em>叙事喷泉 Narrative Fountain</em> | Dance Theater <br>
 Choreography / Text / Voice: Mengfan Wang <br>
 Dance: Min Qian <br>
 Composition / Installation: Shuoxin Tan <br>
-14/16 April 2023 <br>
-West Bund Museum, Shanghai <br>
-commissioned by <em> Centre Pompidou x West Bund Museum Project </em><br>
+14/16 April 2023, West Bund Museum, Shanghai <br>
+commissioned by Centre Pompidou x West Bund Museum Project <br>
 with the support of <em> Kering | Women In Motion </em><br>
-<br>
 <br>
 <em>镜像记录 Protokoll des Spiegels</em> | live-streaming essay-performance <br>
 Shuoxin Tan (Cologne) / Mengfan Wang (Beijing) <br>
-5/6 Nov 2020 <br> 
-commissioned by <em>Beijing Fringe Festival</em> **[.](https://vimeo.com/475457244)** <br>
+5/6 Nov 2020, commissioned by <em>Beijing Fringe Festival</em> **[.](https://vimeo.com/475457244)** <br>
 <br>
 <br>
-
 ## **Interview**
 
-»<em>collaboration and communication through network music</em>« (with Ensemble [ _ _ _ ]) <br>
+<em>Collaboration and Communication through Network Music</em> (with Ensemble [ _ _ _ ]) <br>
 by Cis De Gendt <br>
 2 Oct 2023 <br>
 default#9 x 3345, Centrale Bibliotheek Den Haag **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
-<br>
 <br>
 <em>Articulated Network</em> (with Ensemble [ _ _ _ ]) <br>
 by Shuoxin Tan <br>
 Jun 2022 <br>
 ON Podcast, Cologne **[.](https://www.on-cologne.de/en/shuoxin-tan-en/)** <br>
 <br>
-<br>
 Ensemble [ _ _ _ ] <br>
 by Livia B Garcia <br>
 26 Feb 2022 <br>
 <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
 supported by <em>Musikfonds / Neustart Kultur</em> <br>
-
-<br>
 <br>
 Ensemble [ _ _ _ ] <br>
-
 by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunker-performances/_-_-_/interview-_-_-_-li-song-liu-jia-tan-shuoxin/?fbclid=IwAR0eH9UP5JUJ8Z6rT2vGKeWzA7iAooo6T7hEpxlw9c6qJtPbgJt5rkivuN0)** <br>
 14 Mar 2021 <br>
 <br>
 <br>
-## **Writing | Report**
+## **Writing**
+
 <em>»Let it be ...«</em> Ein Bericht über James Tenney und seinen Essay »John Cage and the Theory of Harmony« (1983)<br>
-a Report for Seminar<br>
-<em>Mediale Zeitformen II</em> Marcus Schmickler<br>
+<em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
 Epistemische Medien, IMM, RSH<br>
 25 May 2021<br>
 <br>
-<br>
 <em>»Der nullte Körper«</em><br>
-an Essay for Seminar<br>
-<em>Form und Formalismus - entwendete Mathematik</em> Prof. Julian Rohrhuber / Dr. Tzuchien Tho<br>
+<em>Form und Formalismus-entwendete Mathematik</em>, Prof. Julian Rohrhuber / Dr. Tzuchien Tho<br>
 Epistemische Medien, IMM, RSH<br>
 13 Apr 2021 <br>
 <br>
@@ -324,25 +238,12 @@ Initiative Freie Musik e.V. Köln, 2021 <br>
 DAAD, 2021 <br>
 <br>
 <br>
-## **<em>"演会儿" | Play for a While</em> - site-specific computer music improvisation during covid lockdown**
-20 Jun 2021 <br>
-St. Michael, Cologne **[.](https://vimeo.com/565346425)** <br>
-<br>
-<br>
-30 Apr 2021 <br>
-Simultanhalle, Cologne **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
-<br>
-<br>
-15 Jan 2021 <br>
-Kath. Kirche Herz Jesu, Cologne <br>
-<br>
-<br>
-26 Dec 2020 <br>
-Schlossgarten, Karlsruhe **[.](https://vimeo.com/manage/videos/501871189)** <br>
-<br>
-<br>
-12 Dec 2020 <br>
-Japanischer Garten, Düsseldorf <br>
+## **<em>"演会儿" | Play for a While</em> site-specific computer music improvisation during covid lockdown**
+20 Jun 2021, St. Michael, Cologne **[.](https://vimeo.com/565346425)** <br>
+30 Apr 2021, Simultanhalle, Cologne **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
+15 Jan 2021, Kath. Kirche Herz Jesu, Cologne <br>
+26 Dec 2020, Schlossgarten, Karlsruhe **[.](https://vimeo.com/manage/videos/501871189)** <br>
+12 Dec 2020, Japanischer Garten, Düsseldorf <br>
 
 
 
