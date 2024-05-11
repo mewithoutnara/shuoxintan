@@ -10,7 +10,7 @@ How to apply „purloined“ theoretical knowledge into artistic practice is her
 Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
 <br>
-Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [Noise of Cologne](https://www.reihe-m.de/?page_id=1023).
+Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [reiheM](https://www.reihe-m.de/?page_id=1023).
 <br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
@@ -29,9 +29,14 @@ Computer music performance <br>
 25 Apr 2024, <em>Player Piano Event</em>, Robert Schumann Hochschule Düsseldorf <br>
 <br>
 <br>
+Ensemble [ _ _ _ ] <br>
+<em>TOPLAP20</em> | livecode stream <br>
+23 Feb 2024, Karlsruhe **[.](https://archive.org/details/toplap20------)** <br>
+<br>
+<br>
 Computer music performance <br>
-26 Nov 2023, 674FM, Ubierring 13, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
-2 Oct 2023, <em>default#9 x 3345 the hague</em>, Centrale Bibliotheek, The Hague **[.](https://defaultdenhaag.substack.com/p/focus-default-9-x-3345-02102023-with)** <br>
+26 Nov 2023, <em>Exyno_Radio</em>, 674 FM, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
+2 Oct 2023, <em>default#9 x 3345 the hague</em>, Centrale Bibliotheek, The Hague **[.](https://youtu.be/jE99niIsf2E?si=XTi9bcAnUOaqK1i_)** <br>
 30 Jul 2023, <em>STROMSPIESSER XII</em> Konzertreihe für Live-Elektronische Musik, Tresor.West, Dortmund **[.](https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/)** <br>
 1 Mar 2023, Hunderd Years Gallery, London **[.](http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/)** <br>
 <br>
@@ -118,7 +123,7 @@ supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **
 <br>
 ## **Release**
 <em>Noise of Cologne 3</em> <br>
-2024, ReiheM, Germany **[.](https://www.reihe-m.de/?page_id=1023)** <br>
+2024, reiheM, Germany **[.](https://www.reihe-m.de/?page_id=1023)** <br>
 <br>
 <em>叙事喷泉 Narrative Fountain</em> <br>
 Shuoxin Tan <br>
@@ -213,8 +218,13 @@ by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunke
 14 Mar 2021 <br>
 <br>
 <br>
-## **Writing**
+## **Writing / Report**
 
+<em>»Nicht-Zeigen und Strukturlosigkeit «</em> Ligeti und Mikropolyphonie<br>
+<em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
+Epistemische Medien, IMM, RSH<br>
+16 Apr 2024 <br>
+<br>
 <em>»Let it be ...«</em> Ein Bericht über James Tenney und seinen Essay »John Cage and the Theory of Harmony« (1983)<br>
 <em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
 Epistemische Medien, IMM, RSH<br>
