@@ -22,7 +22,8 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 Computer music performance <br>
-14 Jun 2024, Honigfabrik, Hamburg <br>
+blurred edges Festival für aktuelle Musik Hamburg
+14 Jun 2024, Honigfabrik <br>
 <br>
 <br>
 <em>Voice$ and Piano</em> | 4 miniature compositions for player piano <br>
