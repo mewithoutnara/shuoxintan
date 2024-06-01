@@ -22,12 +22,13 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 Computer music performance <br>
-blurred edges Festival für aktuelle Musik Hamburg
+blurred edges Festival für aktuelle Musik Hamburg <br>
 14 Jun 2024, Honigfabrik <br>
 <br>
 <br>
 <em>Voice$ and Piano</em> | 4 miniature compositions for player piano <br>
-25 Apr 2024, <em>Player Piano Event</em>, Robert Schumann Hochschule Düsseldorf <br>
+<em>Player Piano Event</em> <br>
+25 Apr 2024, Robert Schumann Hochschule Düsseldorf <br>
 <br>
 <br>
 Ensemble [ _ _ _ ] <br>
