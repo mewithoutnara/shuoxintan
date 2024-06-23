@@ -22,8 +22,27 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 Computer music performance <br>
+28 Aug 2024, Gemeinde, Cologne <br>
+<br>
+<br>
+Ensemble [ _ _ _ ] <br>
+<em>CENTRE COURT FESTIVAL 2024</em> |LTK4<br>
+03 Aug 2024, LTK4, Cologne <br>
+<br>
+<br>
+Nothing Important
+improvised music with electromagnetic microphones <br>
+13 Jul 2024, ES365, Düsseldorf <br>
+<br>
+<br>
+Numbers and Events
+quadrophonic computer music performance <br>
+28 Jun 2024, ES365, Düsseldorf <br>
+<br>
+<br>
+Computer music performance <br>
 blurred edges Festival für aktuelle Musik Hamburg <br>
-14 Jun 2024, Honigfabrik <br>
+14 Jun 2024, Honigfabrik, Hamburg <br>
 <br>
 <br>
 <em>Voice$ and Piano</em> | 4 miniature compositions for player piano <br>
