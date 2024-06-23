@@ -30,12 +30,12 @@ Ensemble [ _ _ _ ] <br>
 03 Aug 2024, LTK4, Cologne <br>
 <br>
 <br>
-Nothing Important
+<em>Nothing Important</em> <br>
 improvised music with electromagnetic microphones <br>
 13 Jul 2024, ES365, Düsseldorf <br>
 <br>
 <br>
-Numbers and Events
+<em>Numbers and Events</em> <br>
 quadrophonic computer music performance <br>
 28 Jun 2024, ES365, Düsseldorf <br>
 <br>
