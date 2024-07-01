@@ -21,7 +21,13 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-Computer music performance <br>
+Computer music solo performance <br>
+Himera Festival <br>
+02 Nov 2024, Turku, Finland <br>
+<br>
+<br>
+Computer music solo performance <br>
+Bruitkasten Sommerfest <br>
 28 Aug 2024, Gemeinde, Cologne <br>
 <br>
 <br>
@@ -30,13 +36,11 @@ Ensemble [ _ _ _ ] <br>
 03 Aug 2024, LTK4, Cologne <br>
 <br>
 <br>
-<em>Nothing Important</em> <br>
-improvised music with electromagnetic microphones <br>
+<em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
 13 Jul 2024, ES365, Düsseldorf <br>
 <br>
 <br>
-<em>Numbers and Events</em> <br>
-quadrophonic computer music performance <br>
+<em>Numbers and Events</em> | quadrophonic computer music performance <br>
 28 Jun 2024, ES365, Düsseldorf <br>
 <br>
 <br>
@@ -241,7 +245,12 @@ by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunke
 <br>
 ## **Writing / Report**
 
-<em>»Nicht-Zeigen und Strukturlosigkeit «</em> Ligeti und Mikropolyphonie<br>
+<em>»Rings of String«</em> Lecture performance of Jacques Lacan and borromean rings <br>
+<em>Kolloquium</em>, Julian Rohrhuber <br>
+Epistemische Medien, IMM, RSH <br>
+12 Jun 2024 <br>
+<br>
+<em>»Nicht-Zeigen und Strukturlosigkeit«</em> Ligeti und Mikropolyphonie<br>
 <em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
 Epistemische Medien, IMM, RSH<br>
 16 Apr 2024 <br>
@@ -259,6 +268,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 ## **Scholarships and Residencies**
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 <br>
+Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 <br>
 Sound Arguments | Orpheus Instituut Gent, 2024 <br>
 Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
 ON - Neue Musik e.V. Köln, 2022 <br>
