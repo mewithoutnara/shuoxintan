@@ -3,7 +3,7 @@
                                                                                                               
 # Shuoxin Tan
 
-Born in Beijing, now living and working as a freelance composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalization.<br>
+Born in Beijing, now living and working as a composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalisation.<br>
 <br>
 How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception.<br>
 <br>
@@ -14,42 +14,54 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 <br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
-[vimeo](https://vimeo.com/shuoxin)<br>
+[youtube](https://www.youtube.com/@ShuoxinTan)<br>
 
 <br>
 <br>
 
 ## **Events** 
 
-Computer music solo performance <br>
+<em>Numbers and Events</em> | quadrophonic computer music performance <br>
 Himera Festival <br>
 02 Nov 2024, Turku, Finland <br>
 <br>
 <br>
-Computer music solo performance <br>
-Bruitkasten Sommerfest <br>
+<em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
+Self-sufficient music #3, NUB Project Space <br>
+12 Oct 2024, Pistoia, Italy <br>
+<br>
+<br>
+<em>(De)composition of Inside- and Outsideness: Sound Synthesis as Point, Surface and Twist</em> | lecture-performance w/ Joseph Baader <br>
+Speculative Sound Synthesis Symposium 2024 <br>
+26 Sep 2024, Institute of Electronic Music and Acoustics Graz, Austria <br>
+<br>
+<br>
+<em>Numbers and Events</em> | quadrophonic computer music performance <br>
+Bruitkasten Sommerfestival <br>
 28 Aug 2024, Gemeinde, Cologne <br>
 <br>
 <br>
 Ensemble [ _ _ _ ] <br>
-<em>CENTRE COURT FESTIVAL 2024</em> |LTK4<br>
+<em>CENTRE COURT FESTIVAL 2024</em> | LTK4·Klangbasierte Künste Köln <br>
 03 Aug 2024, LTK4, Cologne <br>
 <br>
 <br>
 <em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
+Sommerfest Klang und Realität 2024 <br>
 13 Jul 2024, ES365, Düsseldorf <br>
 <br>
 <br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
+Musikinformatik Konzert
 28 Jun 2024, ES365, Düsseldorf <br>
 <br>
 <br>
-Computer music performance <br>
-blurred edges Festival für aktuelle Musik Hamburg <br>
+Computer music solo performance <br>
+blurred edges Festival für aktuelle Musik Hamburg **[.](https://www.vamh.de/blurred_edges/gigs/4990)** <br>
 14 Jun 2024, Honigfabrik, Hamburg <br>
 <br>
 <br>
-<em>Voice$ and Piano</em> | 4 miniature compositions for player piano <br>
+<em>Voice$ and Piano</em> | 4 miniature compositions for player piano **[.](https://www.youtube.com/watch?v=Cs8Pm9GBfx0)** <br>
 <em>Player Piano Event</em> <br>
 25 Apr 2024, Robert Schumann Hochschule Düsseldorf <br>
 <br>
