@@ -26,6 +26,11 @@ Himera Festival <br>
 02 Nov 2024, Turku, Finland <br>
 <br>
 <br>
+<em>from two roots</em> | quadrophonic fixed-media installation <br>
+SOIRÉE SONIQUE #88 | LTK4·Klangbasierte Künste Köln <br>
+30 Oct-02 Nov 2024, Cologne <br>
+<br>
+<br>
 <em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
 Self-sufficient music #3, NUB Project Space <br>
 12 Oct 2024, Pistoia, Italy <br>
