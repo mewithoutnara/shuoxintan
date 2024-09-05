@@ -23,7 +23,7 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
 Himera Festival <br>
-02 Nov 2024, Turku, Finland <br>
+02 Nov 2024, Sibelius Museum, Turku, Finland <br>
 <br>
 <br>
 <em>from two roots</em> | quadrophonic fixed-media installation <br>
