@@ -36,7 +36,7 @@ NOW! Festival | Neue Musik Zentrale <br>
 26 Oct 2024, Essen <br>
 <br>
 <br>
-improvised performances w/ Li Song, Jia Liu <br>
+Solo / Ensemble [ _  _  _ ] <br>
 Self-sufficient music #3, NUB Project Space <br>
 12 Oct 2024, Pistoia, Italy <br>
 <br>
