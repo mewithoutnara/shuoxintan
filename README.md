@@ -43,7 +43,7 @@ Self-sufficient music #3, NUB Project Space <br>
 <br>
 <em>(De)composition of Inside- and Outsideness: Sound Synthesis as Point, Surface and Twist</em> | lecture-performance w/ Joseph Baader <br>
 Speculative Sound Synthesis Symposium 2024 <br>
-26 Sep 2024, Institute of Electronic Music and Acoustics Graz, Austria <br>
+26 Sep 2024, Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 <br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
@@ -62,7 +62,7 @@ Sommerfest Klang und Realität 2024 <br>
 <br>
 <br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
-Musikinformatik Konzert
+Musikinformatik Konzert <br>
 28 Jun 2024, ES365, Düsseldorf <br>
 <br>
 <br>
