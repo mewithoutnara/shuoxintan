@@ -31,7 +31,12 @@ SOIRÉE SONIQUE #88 | LTK4·Klangbasierte Künste Köln <br>
 30 Oct-02 Nov 2024, Cologne <br>
 <br>
 <br>
-<em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
+Deterministic Jitter | computer music performance <br>
+NOW! Festival | Neue Musik Zentrale <br>
+26 Oct 2024, Essen <br>
+<br>
+<br>
+improvised performances w/ Li Song, Jia Liu <br>
 Self-sufficient music #3, NUB Project Space <br>
 12 Oct 2024, Pistoia, Italy <br>
 <br>
