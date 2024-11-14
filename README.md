@@ -22,23 +22,24 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
-Himera Festival <br>
-02 Nov 2024, Sibelius Museum, Turku, Finland <br>
-<br>
+Himera Festival **[.](https://himera.fi/post/761841065181544448/himera-festival-2024)** <br>
+02 Nov 2024, Sibelius Museum Turku, Finland **[.](https://sibeliusmuseum.fi/en/events/himera-presents-bryan-eubanks-xavier-lopez-and-shuoxin-tan/)** <br>
+<br> 
 <br>
 <em>from two roots</em> | quadrophonic fixed-media installation <br>
-SOIRÉE SONIQUE #88 | LTK4·Klangbasierte Künste Köln <br>
-30 Oct-02 Nov 2024, Cologne <br>
+SOIRÉE SONIQUE #88 | LTK4·Klangbasierte Künste Köln **[.](https://ltk4.de/portfolio/soiree_sonique_88/)** <br>
+30 Oct-02 Nov 2024, Lutherkirche, Cologne <br>
 <br>
 <br>
-Deterministic Jitter | computer music performance <br>
-NOW! Festival | Neue Musik Zentrale <br>
-26 Oct 2024, Essen <br>
+<em>Numbers and Events</em> | computer music performance <br>
+Deterministic Jitter | NOW! Festival <br>
+26 Oct 2024, Neue Musik Zentrale, Essen <br>
 <br>
 <br>
-Solo / Ensemble [ _  _  _ ] <br>
-Self-sufficient music #3, NUB Project Space <br>
-12 Oct 2024, Pistoia, Italy <br>
+<em>Nothing Important</em> | solo performance w/ em microphone, portable recorder, electronics, motor, smartphone flashlight, korg monotron, bluethooth speakers <br>
+<em>Ensemble [ _  _  _ ]</em> | algorithmic network computer music performance <br>
+Self-sufficient music #3, NUB Project Space **[.](https://www.nubprojectspace.com/programma/self-sufficient-musics-3-li-song-jia-liu-shuoxin-tan.shtml)** <br>
+12 Oct 2024, Palazzo Fabroni Pistoia, Italy <br>
 <br>
 <br>
 <em>(De)composition of Inside- and Outsideness: Sound Synthesis as Point, Surface and Twist</em> | lecture-performance w/ Joseph Baader <br>
@@ -52,8 +53,8 @@ Bruitkasten Sommerfestival <br>
 <br>
 <br>
 Ensemble [ _ _ _ ] <br>
-<em>CENTRE COURT FESTIVAL 2024</em> | LTK4·Klangbasierte Künste Köln <br>
-03 Aug 2024, LTK4, Cologne <br>
+<em>CENTRE COURT FESTIVAL 2024</em> | LTK4·Klangbasierte Künste Köln **[.](https://ltk4.de/portfolio/centrecourt24/)** <br>
+03 Aug 2024, Lutherkirche, Cologne <br>
 <br>
 <br>
 <em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
@@ -66,7 +67,7 @@ Musikinformatik Konzert <br>
 28 Jun 2024, ES365, Düsseldorf <br>
 <br>
 <br>
-Computer music solo performance <br>
+<em>Numbers and Events</em> | Computer music solo performance <br>
 blurred edges Festival für aktuelle Musik Hamburg **[.](https://www.vamh.de/blurred_edges/gigs/4990)** <br>
 14 Jun 2024, Honigfabrik, Hamburg <br>
 <br>
