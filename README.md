@@ -21,6 +21,20 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
+Residency as guest artists w/ Joseph Baader <br>
+Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <br>
+April - May 2025, University of Music and Performing Arts Graz, Austria <br>
+<br> 
+<br>
+Quadrophonic computer music performance <br>
+Klang und Realität #3 <br>
+09 Feb 2025, FFT Düsseldorf <br>
+<br> 
+<br>
+Solo Performance <br>
+Jan 2025, bistro Helsinki <br>
+<br> 
+<br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
 Himera Festival **[.](https://himera.fi/post/761841065181544448/himera-festival-2024)** <br>
 02 Nov 2024, Sibelius Museum Turku, Finland **[.](https://sibeliusmuseum.fi/en/events/himera-presents-bryan-eubanks-xavier-lopez-and-shuoxin-tan/)** <br>
