@@ -35,6 +35,10 @@ Solo Performance <br>
 Jan 2025, bistro Helsinki <br>
 <br> 
 <br>
+Ensemble [ _ _ _ ] | remote concert <br>
+01 Dec 2024, <em>xiaozu</em> Beijing, China <br>
+<br>
+<br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
 Himera Festival **[.](https://himera.fi/post/761841065181544448/himera-festival-2024)** <br>
 02 Nov 2024, Sibelius Museum Turku, Finland **[.](https://sibeliusmuseum.fi/en/events/himera-presents-bryan-eubanks-xavier-lopez-and-shuoxin-tan/)** <br>
