@@ -21,9 +21,14 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-Residency as guest artists w/ Joseph Baader <br>
+Point, Surface, Twist | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
+<br> 
+<br>
+HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER? | Jingru Cyan Cheng and Chen Zhan<br>
+Commissioned composition, sound installation and spatialization <br>
+23. Jan. - 19. Apr. 2025, STOREFRONT FOR ART & ARCHITECHTURE New York, USA **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
