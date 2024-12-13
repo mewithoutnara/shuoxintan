@@ -26,15 +26,20 @@ Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
-HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER? | Jingru Cyan Cheng and Chen Zhan<br>
-Commissioned composition, sound installation and spatialization <br>
-23. Jan. - 19. Apr. 2025, STOREFRONT FOR ART & ARCHITECHTURE New York, USA **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
-<br> 
-<br>
 Quadrophonic computer music performance <br>
 Klang und Realität #3 <br>
 09 Feb 2025, FFT Düsseldorf <br>
 <br> 
+<br>
+HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER? | Jingru Cyan Cheng and Chen Zhan<br>
+Commissioned work for composition, sound installation and spatialisation <br>
+23. Jan. - 19. Apr. 2025, STOREFRONT FOR ART & ARCHITECHTURE New York, USA **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
+<br> 
+<br>
+Concert for improvised music <br>
+Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
+30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
+<br>
 <br>
 Solo Performance <br>
 Jan 2025, bistro Helsinki <br>
