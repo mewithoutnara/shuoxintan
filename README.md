@@ -21,14 +21,15 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-UK Tour <br>
-30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds<br>
-29 Mar 2025, Hundred Years Gallery, London<br>
-<br> 
-<br>
+
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
+<br> 
+<br>
+UK Tour <br>
+30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds<br>
+29 Mar 2025, Hundred Years Gallery, London<br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
