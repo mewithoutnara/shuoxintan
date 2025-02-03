@@ -21,19 +21,19 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
+UK Tour <br>
+30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds<br>
+29 Mar 2025, Hundred Years Gallery, London<br>
+<br> 
+<br>
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
-Klang und Realität #3 <br>
-09 Feb 2025, FFT Düsseldorf <br>
-<br> 
-<br>
-Studio computer music performance <br>
-Reihe <em>Square</em> <br>
-07 Feb 2025, Vogteistraße 18A Köln <br>
+09 Feb 2025, Klang und Realität #3, FFT Düsseldorf <br>
+07 Feb 2025,Reihe <em>Square</em>, Vogteistraße 18A Köln <br>
 <br> 
 <br>
 <em>HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER?</em> | Jingru Cyan Cheng and Chen Zhan<br>
@@ -41,7 +41,7 @@ Commissioned work for composition, sound installation and spatialisation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
 <br> 
 <br>
-Concert for improvised music <br>
+RANDOM EXPECTATION 2 | Concert for improvised music <br>
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
