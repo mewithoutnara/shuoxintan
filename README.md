@@ -27,7 +27,8 @@ Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
-UK Tour <br>
+UK mini tour <br>
+01 Apr 2025, FLOAT, Huddersfield<br>
 30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds<br>
 29 Mar 2025, Hundred Years Gallery, London<br>
 <br> 
