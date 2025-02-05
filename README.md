@@ -23,7 +23,7 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
-Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz <br>
+Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_artists/#shuoxin-tan-and-joseph-baader)** <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
@@ -34,8 +34,8 @@ UK mini tour <br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
-09 Feb 2025, Klang und Realität #3, FFT Düsseldorf <br>
-07 Feb 2025,Reihe <em>Square</em>, Vogteistraße 18A Köln <br>
+09 Feb 2025, <em>Klang und Realität #3</em>, FFT Düsseldorf **[.](https://www.fft-duesseldorf.de/spielplan/klang-realitaet-3)** <br>
+07 Feb 2025, Reihe <em>Square</em>, Vogteistraße 18A Köln **[.](https://square-music.org/)** <br>
 <br> 
 <br>
 <em>HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER?</em> | Jingru Cyan Cheng and Chen Zhan<br>
