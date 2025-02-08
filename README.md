@@ -28,9 +28,10 @@ April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
 UK mini tour <br>
-01 Apr 2025, FLOAT, Huddersfield<br>
+02 Apr 2025, Nottingham <br>
+01 Apr 2025, < / float >, Huddersfield <br>
 30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
-29 Mar 2025, Hundred Years Gallery, London<br>
+29 Mar 2025, Hundred Years Gallery, London <br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
