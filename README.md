@@ -28,10 +28,10 @@ April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
 UK mini tour <br>
-02 Apr 2025, Dirty Electronics, Nottingham <br>
-01 Apr 2025, < / float >, Huddersfield <br>
-30 Mar 2025, FREE MUSIC LESSONS, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
-29 Mar 2025, Hundred Years Gallery, London <br>
+02 Apr 2025, <em>Dirty Electronics</em>, Nottingham <br>
+01 Apr 2025, <em>< / float ></em>, Huddersfield <br>
+30 Mar 2025, <em>FREE MUSIC LESSONS</em>, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
+29 Mar 2025, <em>Festival Maybe</em>, Hundred Years Gallery, London <br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
@@ -40,7 +40,7 @@ Quadrophonic computer music performance <br>
 <br> 
 <br>
 <em>HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER?</em> | Jingru Cyan Cheng and Chen Zhan<br>
-Commissioned work for composition, sound installation and spatialisation <br>
+Commissioned work for sound composition, sound installation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
 <br> 
 <br>
