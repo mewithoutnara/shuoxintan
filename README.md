@@ -21,7 +21,11 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-
+RANDOM EXPECTATION | Concert for improvised music <br>
+Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
+06-09 June, 54. Moers Festival <br>
+<br>
+<br>
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_artists/#shuoxin-tan-and-joseph-baader)** <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
@@ -44,7 +48,7 @@ Commissioned work for sound composition, sound installation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)**<br>
 <br> 
 <br>
-RANDOM EXPECTATION 2 | Concert for improvised music <br>
+RANDOM EXPECTATION | Concert for improvised music <br>
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
@@ -276,7 +280,10 @@ Shuoxin Tan (Cologne) / Mengfan Wang (Beijing) <br>
 <br>
 <br>
 ## **Interview**
-
+<em>SHUOXIN TAN - Der vierte Ring, oder: connected through the www </em> <br>
+by Friedemann Dupelius <br>
+NOIES MUSIK SZENE NRW 01/2025 / EM GUIDE <br>
+<br>
 <em>Collaboration and Communication through Network Music</em> (with Ensemble [ _ _ _ ]) <br>
 by Cis De Gendt <br>
 2 Oct 2023 <br>
