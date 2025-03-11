@@ -32,10 +32,9 @@ April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
 <br>
 UK mini tour <br>
-02 Apr 2025, <em>Dirty Electronics</em>, Nottingham <br>
 01 Apr 2025, <em>< / float ></em>, Huddersfield **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
 30 Mar 2025, <em>FREE MUSIC LESSONS</em>, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
-29 Mar 2025, <em>Festival Maybe</em>, Hundred Years Gallery, London <br>
+29 Mar 2025, <em>Festival Maybe</em>, Hundred Years Gallery, London **[.](https://maybe.notimportant.org)** <br>
 <br> 
 <br>
 Quadrophonic computer music performance <br>
