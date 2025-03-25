@@ -21,9 +21,17 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-RANDOM EXPECTATION | Collective for improvised music <br>
-w/ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Cong Zhao, Wenbo Zhu <br>
-06-09 June 2025, 54. Moers Festival <br>
+**54. moers festival 2025** <br>
+06 Jun <br>
+<em>Duo</em>, w/ Jun-Y Ciao <br>
+07 Jun <br>
+<em>Trio</em>, w/ Simon Rummel, Ketonge <br>
+<em>Septet</em>, Random Expectation <br>
+ w/ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Cong Zhao, Wenbo Zhu <br>
+08 Jun <br>
+<em>Solo</em> <br>
+<br>
+<em>Quintet</em> Random Expectation <br>
 w/ Mattias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao <br>
 17 Mar 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br>
@@ -31,7 +39,7 @@ w/ Mattias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_artists/#shuoxin-tan-and-joseph-baader)** <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
 <br> 
-UK mini tour <br>
+**UK mini tour** <br>
 01 Apr 2025, <em>< / float ></em>, Huddersfield **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
 30 Mar 2025, <em>FREE MUSIC LESSONS</em>, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
 29 Mar 2025, <em>Festival Maybe</em>, Hundred Years Gallery, London **[.](https://maybe.notimportant.org)** <br>
@@ -44,11 +52,10 @@ Quadrophonic computer music performance <br>
 Commissioned work for sound composition, sound installation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)** <br>
 <br> 
-RANDOM EXPECTATION | Collective for improvised music <br>
+<em>Septett</em> RANDOM EXPECTATION <br>
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
-<br>
 Ensemble [ _ _ _ ] | remote concert <br>
 01 Dec 2024, <em>xiaozu</em> Beijing, China <br>
 <br>
