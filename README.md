@@ -268,7 +268,7 @@ by Shumi Bose x KoozArch **[.](https://koozarch.com/interviews/ripples-traces-dr
 <br>
 <em>SHUOXIN TAN - Der vierte Ring, oder: connected through the www </em> <br>
 by Friedemann Dupelius <br>
-NOIES MUSIK SZENE NRW 01/2025 / EM GUIDE <br>
+NOIES MUSIK SZENE NRW 01/2025 / EM GUIDE **[.](https://noies.nrw/begegnung-mit-shuoxin-tan-der-vierte-ring-oder-connected-through-the-www/)** <br>
 <br>
 <em>Collaboration and Communication through Network Music</em> (with Ensemble [ _ _ _ ]) <br>
 by Cis De Gendt <br>
