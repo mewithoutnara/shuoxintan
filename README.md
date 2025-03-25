@@ -52,7 +52,7 @@ Quadrophonic computer music performance <br>
 Commissioned work for sound composition, sound installation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)** <br>
 <br> 
-<em>Septett</em> RANDOM EXPECTATION <br>
+<em>Septet</em> RANDOM EXPECTATION <br>
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
