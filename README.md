@@ -31,25 +31,29 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 08 Jun <br>
 <em>Solo</em> <br>
 <br>
-<em>Quintet</em> Random Expectation <br>
-w/ Mattias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao <br>
-17 Mar 2025, Tersteegenkirche Köln-Dünnwald <br>
-<br>
+computer music solo performance <br>
+10 May 2025, Evelyns Garden Cologne <br>
+12 Apr 2025, <em>artartist.co</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
+<br> 
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_artists/#shuoxin-tan-and-joseph-baader)** <br>
 April - May 2025, University of Music and Performing Arts Graz, Austria <br>
-<br> 
+<br>
 **UK mini tour** <br>
 01 Apr 2025, <em>< / float ></em>, Huddersfield **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
 30 Mar 2025, <em>FREE MUSIC LESSONS</em>, Wharf Chambers, Leeds **[.](https://snufk.in/free-music-lessons/yan-jun-shuoxin-tan-kieron-piercy-lovely-honkey-lewys-holt.html)** <br>
 29 Mar 2025, <em>Festival Maybe</em>, Hundred Years Gallery, London **[.](https://maybe.notimportant.org)** <br>
+<br>
+<em>Quintet</em> Random Expectation <br>
+w/ Mattias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao <br>
+17 Mar 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
 Quadrophonic computer music performance <br>
 09 Feb 2025, <em>Klang und Realität #3</em>, FFT Düsseldorf **[.](https://www.fft-duesseldorf.de/spielplan/klang-realitaet-3)** <br>
 07 Feb 2025, Reihe <em>Square</em>, Vogteistraße 18A Köln **[.](https://square-music.org/)** <br>
 <br> 
 <em>HOW MUCH WATTAGE IS ONE HANDBREATH OF WATER?</em> | Jingru Cyan Cheng and Chen Zhan<br>
-Commissioned work for sound composition, sound installation <br>
+Commissioned work for feedback sound installation, music composition for 3-channel video <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)** <br>
 <br> 
 <em>Septet</em> RANDOM EXPECTATION <br>
