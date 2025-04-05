@@ -21,6 +21,10 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
+<em>Solo / Uncertain</em> RANDOM EXPECTATION <br>
+Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
+10 Jun 2025, Vogteistraße 18A Köln <br>
+<br>
 **54. moers festival 2025** <br>
 06 Jun <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
@@ -32,7 +36,7 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 <em>Solo</em> <br>
 <br>
 computer music solo performance <br>
-10 May 2025, <em>Evelyns Garden</em>, Bilderstöckchen Cologne <br>
+10 May 2025, <em>Evelyns Garden</em>, Bilderstöckchen Köln <br>
 12 Apr 2025, <em>ART ARTIST</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
 <br> 
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
@@ -69,7 +73,7 @@ Himera Festival **[.](https://himera.fi/post/761841065181544448/himera-festival-
 <br> 
 <em>from two roots</em> | quadrophonic fixed-media installation <br>
 SOIRÉE SONIQUE #88 | LTK4·Klangbasierte Künste Köln **[.](https://ltk4.de/portfolio/soiree_sonique_88/)** <br>
-30 Oct-02 Nov 2024, Lutherkirche, Cologne <br>
+30 Oct-02 Nov 2024, Lutherkirche, Köln <br>
 <br>
 <em>Numbers and Events</em> | computer music performance <br>
 Deterministic Jitter | NOW! Festival <br>
@@ -86,11 +90,11 @@ Speculative Sound Synthesis Symposium 2024 <br>
 <br>
 <em>Numbers and Events</em> | quadrophonic computer music performance <br>
 Bruitkasten Sommerfestival <br>
-28 Aug 2024, Gemeinde, Cologne <br>
+28 Aug 2024, Gemeinde, Köln <br>
 <br>
 Ensemble [ _ _ _ ] <br>
 <em>CENTRE COURT FESTIVAL 2024</em> | LTK4·Klangbasierte Künste Köln **[.](https://ltk4.de/portfolio/centrecourt24/)** <br>
-03 Aug 2024, Lutherkirche, Cologne <br>
+03 Aug 2024, Lutherkirche, Köln <br>
 <br>
 <em>Nothing Important</em> | improvised music with electromagnetic microphones <br>
 Sommerfest Klang und Realität 2024 <br>
@@ -114,7 +118,7 @@ Ensemble [ _ _ _ ] <br>
 <br>
 <br>
 Computer music performance <br>
-26 Nov 2023, <em>Exyno_Radio</em>, 674 FM, Cologne **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
+26 Nov 2023, <em>Exyno_Radio</em>, 674 FM, Köln **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
 2 Oct 2023, <em>default#9 x 3345 the hague</em>, Centrale Bibliotheek, The Hague **[.](https://youtu.be/jE99niIsf2E?si=XTi9bcAnUOaqK1i_)** <br>
 30 Jul 2023, <em>STROMSPIESSER XII</em> Konzertreihe für Live-Elektronische Musik, Tresor.West, Dortmund **[.](https://dortmund-kreativ.de/2023/07/20/stromspiesser-xii/)** <br>
 1 Mar 2023, Hunderd Years Gallery, London **[.](http://hundredyearsgallery.co.uk/music-shuoxin-tan-soft-tissue-jia-liu-andreaesaltersong/)** <br>
@@ -134,7 +138,7 @@ Duo <em>((oppai))</em><br>
 <em>Dinner for One</em> | performance with kinetic sound objects <br>
 27 Jul 2023, Sommerfest Klang und Realität, Düsseldorf **[.](https://www.rsh-duesseldorf.de/aktuelles/artikel/1804-sommerfest-klang-und-realit-t?cHash=5b73db6e0614d6da805f77b444451f11)** <br>
 <em>Durch den Vorhang gehen</em> | Album release concert<br>
-9 Nov 2022, ON Cologne, Cologne **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)** <br>
+9 Nov 2022, ON Cologne, Köln **[.](https://www.on-cologne.de/konzert-tan-molina-dt/)** <br>
 <em>Durch den Vorhang gehen</em> | electroacoustic music performance <br>
 20 May 2022, <em>Lichtbogen - Neue Musik - Klang Raum Resonanz</em>, Robert Schumann Hochschule Düsseldorf **[.](https://www.rsh-duesseldorf.de/fileadmin/user_upload/Programmheft_20_5.pdf)** <br>
 <br>
@@ -145,7 +149,7 @@ Duo <em>((oppai))</em><br>
 3 Dec 2022, <em>NOIES Kurze Tage Kalender</em> **[.](https://www.on-cologne.de/kurzetagekalender-dt/)** <br>
 commissioned by NOIES Musikszene NRW / Institut für Musik und Medien Düsseldorf / Umland Records<br>
 #1, shortwave receiver and organ <br>
-14 May 2022, <em>Akustische Kunst</em>, church Neu St. Alban, Cologne <br>
+14 May 2022, <em>Akustische Kunst</em>, church Neu St. Alban, Köln <br>
 <br>
 Ensemble [ _  _  _ ] <br>
 <em> Compassion Through Algorithms, Algorave Tokyo </em> <br>
@@ -158,10 +162,10 @@ forestlimit, Tokyo **[.](https://www.forestlimit.com/event-details/compassion-th
 #2, quadrophonic version, 20min <br>
 20 Okt 2022, Sparda’s Palastrauschen, Kunstpalast Düsseldorf **[.](https://www.stiftung-sparda-west.de/projekte/kunstpalast-duesseldorf-6)** <br>
 #1, quadrophonic version, 20min <br>
-25 Jun 2022, Galerie Richas Digest, Cologne **[.](https://www.facebook.com/events/707250423689858/)** <br>
+25 Jun 2022, Galerie Richas Digest, Köln **[.](https://www.facebook.com/events/707250423689858/)** <br>
 <br>
 <em>As soft as possible...</em> | quadrophonic computer music composition<br>
-18 Mar 2022, <em>Lange nacht der Kirchen</em>, church St. Aposteln, Cologne **[.](https://www.langenachtderkirchen.koeln/)** <br>
+18 Mar 2022, <em>Lange nacht der Kirchen</em>, church St. Aposteln, Köln **[.](https://www.langenachtderkirchen.koeln/)** <br>
 <br>
 <em>Flechten</em> | computer music composition <br>
 8 Dec 2021, Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)** <br>
@@ -176,10 +180,10 @@ real-time programmed player piano, piano player and 4 voices <br>
 25 Nov 2021, Tonstudio, Hochschule Düsseldorf <br>
 <br>
 Ensemble [ _  _  _ ] <br>
-9 Sep 2021, Crypt, St. Michael, Cologne <br>
+9 Sep 2021, Crypt, St. Michael, Köln <br>
 commissioned by <em>Ambientfestival</em> **[.](https://ambient-festival.com/ensemble/)** <br>
 <em>Der dritte Körper</em> | Research project <em>Collaborative Algorithmic Network-music Performance</em> <br>
-31 Aug 2021, Tower room, St. Michael, Cologne <br>
+31 Aug 2021, Tower room, St. Michael, Köln <br>
 supported by <em>Initiative Freie Musik e.V. / Kulturamt der Stadt Köln</em> **[.](https://youtu.be/kFKrOwDuFDg)** <br>
 <em>Algopolis</em> | Live Code City 2021 <br>
 14 May 2021, Ljubljana **[.](https://www.youtube.com/watch?v=kYW9SSRZAvU&t=11590s)** <br>
@@ -206,7 +210,7 @@ Shuoxin Tan / Natalia Molina <br>
 30 Aug 2022, Zoomin' Night, China **[.](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen)** <br>
 <br>
 <em>[ _ _ _ ]</em> <br>
-Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Cologne)|<br>
+Ensemble [ _  _  _ ] |Song Li(London), Jia Liu(Karlsruhe), Shuoxin Tan(Köln)|<br>
 3 Jun 2022, SUPERPANG, Italy **[.](https://e---e.bandcamp.com/album/-)** <br>
 <br>
 <em>Simultanhalle, April 30, 2021</em> <br>
@@ -239,7 +243,7 @@ May 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.c
 25-27 Feb 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
 <br>
 <em>Zweistimmiger Vogel</em> | site-specific algorithmic sound installation <br>
-26 Jun 2021, Simultanhalle, Cologne **[.](https://vimeo.com/569388824)** <br>
+26 Jun 2021, Simultanhalle, Köln **[.](https://vimeo.com/569388824)** <br>
 <br>
 <em>Deep Simulator</em> | DEEP SIMULATOR, aaajiao <br>
 commissioned composition for multimedia installation <br>
@@ -277,7 +281,7 @@ default#9 x 3345, Centrale Bibliotheek Den Haag **[.](https://defaultdenhaag.sub
 <em>Articulated Network</em> (with Ensemble [ _ _ _ ]) <br>
 by Shuoxin Tan <br>
 Jun 2022 <br>
-ON Podcast, Cologne **[.](https://www.on-cologne.de/en/shuoxin-tan-en/)** <br>
+ON Podcast, Köln **[.](https://www.on-cologne.de/en/shuoxin-tan-en/)** <br>
 <br>
 Ensemble [ _ _ _ ] <br>
 by Livia B Garcia <br>
@@ -327,9 +331,9 @@ DAAD, 2021 <br>
 <br>
 <br>
 ## **<em>"演会儿" | Play for a While</em> site-specific computer music improvisation during covid lockdown**
-20 Jun 2021, St. Michael, Cologne **[.](https://vimeo.com/565346425)** <br>
-30 Apr 2021, Simultanhalle, Cologne **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
-15 Jan 2021, Kath. Kirche Herz Jesu, Cologne <br>
+20 Jun 2021, St. Michael, Köln **[.](https://vimeo.com/565346425)** <br>
+30 Apr 2021, Simultanhalle, Köln **[.](https://mewithoutnara.bandcamp.com/album/simultanhalle-april-30-2021)** <br>
+15 Jan 2021, Kath. Kirche Herz Jesu, Köln <br>
 26 Dec 2020, Schlossgarten, Karlsruhe **[.](https://vimeo.com/manage/videos/501871189)** <br>
 12 Dec 2020, Japanischer Garten, Düsseldorf <br>
 
