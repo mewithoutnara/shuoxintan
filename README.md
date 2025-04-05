@@ -32,8 +32,8 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 <em>Solo</em> <br>
 <br>
 computer music solo performance <br>
-10 May 2025, Evelyns Garden Cologne <br>
-12 Apr 2025, <em>artartist.co</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
+10 May 2025, <em>Evelyns Garden</em>, Bilderstöckchen Cologne <br>
+12 Apr 2025, <em>ART ARTIST</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
 <br> 
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_artists/#shuoxin-tan-and-joseph-baader)** <br>
@@ -227,21 +227,16 @@ Commissioned work for sound composition, sound installation <br>
 23. Jan. - 19. Apr. 2025, Storefront for Art and Architecture, New York **[.](https://storefront.nyc/program/how-much-wattage-is-one-handbreath-of-water-by-jingru-cyan-cheng-and-chen-zhan/)** <br>
 <br>
 <em>Minority Algorithm</em> | A bit, A prompt, aaajiao <br> 
-commissioned composition for multimedia installation <br> 
+commissioned music composition for multimedia installation <br> 
 26 Apr-25 May 2024, SETAREH, Berlin **[.](https://www.indexberlin.com/artists/list/27943/aaajiao)** <br>
 <br>
-<em>Der dritte Körper</em> | Video exhibition <br>
+<em>Der dritte Körper</em> | Media art exhibition <br>
 Ensemble [ _  _  _ ] <br>
+22 Feb-01 Jun 2025, <em>震荡不消磁</em> | Sounding Sound Practice in Chinese Mainland and Hong Kong Since the 1990s <br>
+Inside-Out Art Museum Beijing, China **[.](https://www.ioam.org.cn/%E9%9C%87%E8%8D%A1%E4%B8%8D%E6%B6%88%E7%A3%81/)** <br>
 20-23 April 2023, ICLC, Utrecht **[.](https://iclc.toplap.org/2023/timetable.html)** <br>
-<br>
-<em>Der dritte Körper</em> | Sound & Visual Exhibition <br>
-Ensemble [ _  _  _ ] <br>
 May 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/06/26/der-dritte-korper-_-_-_-li-song-jia-liu-shuoxin-tan/)** <br>
-<br>
-<em>Von anderen Räumen</em> | Sound Exhibition <br>
-Ensemble [ _  _  _ ] <br>
 25-27 Feb 2022, <em>DIVFUSE</em> media art gallery, London **[.](https://www.divfuse.com/index.php/2022/01/11/from-other-spaces-_-_-_/)** <br>
-supported by <em>Musikfonds / Neustart Kultur</em> <br>
 <br>
 <em>Zweistimmiger Vogel</em> | site-specific algorithmic sound installation <br>
 26 Jun 2021, Simultanhalle, Cologne **[.](https://vimeo.com/569388824)** <br>
