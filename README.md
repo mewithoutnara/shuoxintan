@@ -21,6 +21,9 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
+<em>Duo</em>, w/ Li Song <br>
+27 Jun 2025, Hundred Years Gallery, London <br>
+<br>
 <em>Solo / Uncertain</em> RANDOM EXPECTATION <br>
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 10 Jun 2025, Vogteistraße 18A Köln <br>
