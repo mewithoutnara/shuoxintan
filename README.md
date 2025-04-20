@@ -37,9 +37,16 @@ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zh
  w/ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Cong Zhao, Wenbo Zhu <br>
 08 Jun <br>
 <em>Solo</em> <br>
+09 Jun <br>
+<em>Moers Session</em> <br>
 <br>
-computer music solo performance <br>
+<em>Duo</em> w/ Jun-Y Ciao <br>
+21 May 2025, <em>Soft Rotation</em>, 674 FM, Ubierring Köln <br>
+<br>
+Duo w/ Sebastian von der Heide <br>
 10 May 2025, <em>Evelyns Garden</em>, Bilderstöckchen Köln <br>
+<br>
+<em>Solo</em> <br>
 12 Apr 2025, <em>ART ARTIST</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
 <br> 
 <em>Point, Surface, Twist</em> | Residency as guest artists w/ Joseph Baader <br>
