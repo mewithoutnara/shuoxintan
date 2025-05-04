@@ -38,7 +38,8 @@ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zh
 08 Jun <br>
 <em>Solo</em> <br>
 09 Jun <br>
-<em>Moers Session</em> <br>
+<em>Quartet</em> <br>
+w/ Meinrad Kneer, Barbara Ivlev, Matthias Kaiser <br>
 <br>
 <em>Duo</em> w/ Jun-Y Ciao <br>
 21 May 2025, <em>Soft Rotation</em>, 674 FM, Ubierring Köln <br>
