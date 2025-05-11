@@ -45,7 +45,7 @@ w/ Meinrad Kneer, Barbara Ivlev, Matthias Kaiser <br>
 21 May 2025, <em>Soft Rotation</em>, 674 FM, Ubierring Köln <br>
 <br>
 Duo w/ Sebastian von der Heide <br>
-10 May 2025, <em>Evelyns Garden</em>, Bilderstöckchen Köln <br>
+10 May 2025, <em>Maikäfer Musik</em>, Evelyns Garden, Bilderstöckchen Köln <br>
 <br>
 <em>Solo</em> <br>
 12 Apr 2025, <em>ART ARTIST</em>, Hansaalle 190 Düsseldorf **[.](https://artartist.co/)** <br>
