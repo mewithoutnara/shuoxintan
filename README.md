@@ -24,10 +24,6 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 <em>Duo</em>, w/ Li Song <br>
 27 Jun 2025, Hundred Years Gallery, London <br>
 <br>
-<em>Solo / Uncertain</em> RANDOM EXPECTATION <br>
-Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
-10 Jun 2025, Vogteistraße 18A Köln <br>
-<br>
 **54. moers festival 2025** <br>
 06 Jun <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
@@ -41,7 +37,7 @@ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zh
 <em>Quartet</em> <br>
 w/ Meinrad Kneer, Barbara Ivlev, Matthias Kaiser <br>
 <br>
-<em>Duo</em> w/ Jun-Y Ciao <br>
+<em>Duo</em> w/ Jun-Y Ciao **[.](https://softrotation.substack.com/p/soft-rotation-9-concert-series-for)** <br>
 21 May 2025, <em>Soft Rotation</em>, 674 FM, Ubierring Köln <br>
 <br>
 Duo w/ Sebastian von der Heide <br>
