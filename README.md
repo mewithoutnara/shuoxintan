@@ -22,10 +22,10 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 **2026** <br>
-<em>(De)composition of Inside- and Outsideness</em> Sound Synthesis as **Point, Surface and Twist**
+<em>(De)composition of Inside- and Outsideness</em> Sound Synthesis as **Point, Surface and Twist** <br>
 Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026<br>
-Speculative Sound Synthesis | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
+**Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 **2025** <br>
 <em>Duo</em>, w/ Li Song **[.](https://computer.notimportant.org/)** <br>
@@ -82,6 +82,7 @@ Commissioned work for feedback sound installation, music composition for 3-chann
 Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Shuoxin Tan, Cong Zhao, Wenbo Zhu <br>
 30 Jan 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br> 
+**2024** <br>
 Ensemble [ _ _ _ ] | remote concert <br>
 01 Dec 2024, <em>xiaozu</em> Beijing, China <br>
 <br>
@@ -134,7 +135,7 @@ Ensemble [ _ _ _ ] <br>
 <em>TOPLAP20</em> | livecode stream <br>
 23 Feb 2024, Karlsruhe **[.](https://archive.org/details/toplap20------)** <br>
 <br>
-<br>
+**2022/23** <br>
 Computer music performance <br>
 26 Nov 2023, <em>Exyno_Radio</em>, 674 FM, Köln **[.](https://674.fm/exyno_radio-presents-a-tape-release-event-for-omnitopoeia/)** <br>
 2 Oct 2023, <em>default#9 x 3345 the hague</em>, Centrale Bibliotheek, The Hague **[.](https://youtu.be/jE99niIsf2E?si=XTi9bcAnUOaqK1i_)** <br>
@@ -185,6 +186,7 @@ forestlimit, Tokyo **[.](https://www.forestlimit.com/event-details/compassion-th
 <em>As soft as possible...</em> | quadrophonic computer music composition<br>
 18 Mar 2022, <em>Lange nacht der Kirchen</em>, church St. Aposteln, Köln **[.](https://www.langenachtderkirchen.koeln/)** <br>
 <br>
+**2021** <br>
 <em>Flechten</em> | computer music composition <br>
 8 Dec 2021, Partikasaal, Robert Schumann Hochschule Düsseldorf **[.](https://drive.google.com/file/d/1AUq_bhr80fvm6HWcNnqvWQIJ9FquqVT3/view?usp=sharing)** <br>
 Ensemble [ _  _  _ ] <br>
