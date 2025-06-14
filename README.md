@@ -21,21 +21,32 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 
 ## **Events** 
 
-<em>Duo</em>, w/ Li Song <br>
+**2026** <br>
+<em>(De)composition of Inside- and Outsideness</em> Sound Synthesis as **Point, Surface and Twist**
+Installation performance w/ Joseph Baader <br>
+17-19 Jan 2026<br>
+Speculative Sound Synthesis | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
+<br>
+**2025** <br>
+<em>Duo</em>, w/ Li Song **[.](https://computer.notimportant.org/)** <br>
 27 Jun 2025, Hundred Years Gallery, London <br>
+<br>
+<em>Duo</em>, w/ Tom Soloveitzik <br>
+<em>Trio</em>, w/ Georg Wissel, Dušica Cajlan <br>
+10 Jun 2025, Studio Orbitale, Cologne <br>
 <br>
 **54. moers festival 2025** <br>
 06 Jun <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
 07 Jun <br>
+<em>Solo</em> <br>
 <em>Trio</em>, w/ Simon Rummel, Ketonge <br>
+08 Jun <br>
 <em>Septet</em>, Random Expectation <br>
  w/ Matthias Kaiser, Simon Rummel, Thilo Schölpen, Yizhou Sun, Cong Zhao, Wenbo Zhu <br>
-08 Jun <br>
-<em>Solo</em> <br>
 09 Jun <br>
 <em>Quartet</em> <br>
-w/ Meinrad Kneer, Barbara Ivlev, Matthias Kaiser <br>
+w/ Meinrad Kneer, Tomo Ando, Matthias Kaiser <br>
 <br>
 <em>Duo</em> w/ Jun-Y Ciao **[.](https://softrotation.substack.com/p/soft-rotation-9-concert-series-for)** <br>
 21 May 2025, <em>Soft Rotation</em>, 674 FM, Ubierring Köln <br>
@@ -327,7 +338,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 ## **Scholarships and Residencies**
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 <br>
-Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 <br>
+Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
 Sound Arguments | Orpheus Instituut Gent, 2024 <br>
 Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
 ON - Neue Musik e.V. Köln, 2022 <br>
