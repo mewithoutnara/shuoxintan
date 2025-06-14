@@ -22,12 +22,16 @@ Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.
 ## **Events** 
 
 **2026** <br>
-<em>(De)composition of Inside- and Outsideness</em> Sound Synthesis as **Point, Surface and Twist** <br>
+<em>(De)composition of Inside- and Outsideness Sound Synthesis as **Point, Surface and Twist** </em> <br>
 Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026<br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 **2025** <br>
+<em>**Point, Surface and Twist**</em> <br>
+Lecture performance w/ Joseph Baader <br>
+10 Jul 2025, Sommerfest Klang und Realität 2025, IMM Düsseldorf <br>
+<br>
 <em>Duo</em>, w/ Li Song **[.](https://computer.notimportant.org/)** <br>
 27 Jun 2025, Hundred Years Gallery, London <br>
 <br>
