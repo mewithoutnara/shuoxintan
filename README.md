@@ -32,6 +32,8 @@ Installation performance w/ Joseph Baader <br>
 Lecture performance w/ Joseph Baader <br>
 10 Jul 2025, Sommerfest Klang und Realität 2025, IMM Düsseldorf <br>
 <br>
+<em>Duo</em>, w/ Spiral <br>
+28 Jun 2025, Living room, London <br>
 <em>Duo</em>, w/ Li Song **[.](https://computer.notimportant.org/)** <br>
 27 Jun 2025, Hundred Years Gallery, London <br>
 <br>
