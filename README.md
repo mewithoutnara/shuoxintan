@@ -3,14 +3,13 @@
                                                                                                               
 # Shuoxin Tan
 
-Born in Beijing, now living and working as a composer and sound artist in Cologne. Since April 2020 she studies Epistemic Media at Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on sound topology, algorithmic acoustics and mathematical formalisation.<br>
+Born in Beijing, is a computer music composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, algorithmic acoustics, and mathematical formalisation. <br>
 <br>
-How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception.<br>
+How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception. <br>
 <br>
-Influenced by Lacanian topology, namely the Borromean rings, she has founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) together with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. The ensemble started during the Covid lockdown in November 2020 and developed a collaborative algorithmic network-music performance system from scratch, adopting the programming language SuperCollider. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
+Influenced by Lacanian topology, namely the Borromean rings, she co-founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. Initiated during the Covid lockdown in November 2020, the ensemble developed a collaborative, algorithmic network-music performance system from scratch using the SuperCollider programming language. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
-<br>
-Her work has been released on labels such as [SUPERPANG](https://e---e.bandcamp.com/album/-), [Infant Tree](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), compilations on labels [Sub Rosa](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [reiheM](https://www.reihe-m.de/?page_id=1023).
+Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.bandcamp.com/album/-), [Infant Tree (UK)](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night (CN)](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), as well as in compilations by [Sub Rosa (BE) ](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [reiheM (DE)](https://www.reihe-m.de/?page_id=1023). She has performed at events and venues including the Ambient Festival Cologne, ICLC Utrecht, Himera Festival Turku, and numerous independent experimental series in Europe and China.
 <br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
