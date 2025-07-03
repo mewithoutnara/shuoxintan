@@ -29,7 +29,7 @@ Installation performance w/ Joseph Baader <br>
 **2025** <br>
 <em>Septet</em>, Random Expectation <br>
 w/ Matthias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao, Fabian Neubauer, Ketonge <br>
-17 Mar 2025, Tersteegenkirche Köln-Dünnwald <br>
+26 Aug 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br>
 <em>**Point, Surface and Twist**</em> <br>
 Lecture performance w/ Joseph Baader <br>
