@@ -27,6 +27,12 @@ Installation performance w/ Joseph Baader <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 **2025** <br>
+<em>Duo</em>, w/ Li-Chin Li <br>
+05 Nov 2025, Bruitkasten, Köln <br>
+<br>
+<em>Duo</em>, w/ Jun-Y Ciao <br>
+17 Sept 2025, Bruitkasten, Köln <br>
+<br>
 <em>Septet</em>, Random Expectation <br>
 w/ Matthias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao, Fabian Neubauer, Ketonge <br>
 26 Aug 2025, Tersteegenkirche Köln-Dünnwald <br>
