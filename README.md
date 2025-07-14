@@ -27,6 +27,9 @@ Installation performance w/ Joseph Baader <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 **2025** <br>
+<em>Duo</em>, w/ Hanna Schoerken <br>
+08 Nov 2025, Neue Musik Zentrale, Essen <br>
+<br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
