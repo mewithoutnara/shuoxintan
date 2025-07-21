@@ -334,24 +334,27 @@ by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunke
 <br>
 <br>
 ## **Writing / Report**
-
-<em>»Rings of String«</em> Lecture performance of Jacques Lacan and borromean rings <br>
-<em>Kolloquium</em>, Julian Rohrhuber <br>
+<em>»Problemstellung (etwa konkreter)«</em> Lecture performance of Pierre Soury and his writing »Le nœud borroméen orienté« <br>
+Kolloquium, Prof. Julian Rohrhuber <br>
+Epistemische Medien, IMM, RSH <br>
+07 Jul 2025 <br>
+<em>»l'un-en-moins (one-less)«</em> Lecture performance of Jacques Lacan and his writing »Rings of String« <br>
+Kolloquium, Prof. Julian Rohrhuber <br>
 Epistemische Medien, IMM, RSH <br>
 12 Jun 2024 <br>
 <br>
-<em>»Nicht-Zeigen und Strukturlosigkeit«</em> Ligeti und Mikropolyphonie<br>
-<em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
+<em>»Nicht-Zeigen und Strukturlosigkeit«</em> über Ligeti und Mikropolyphonie <br>
+Mediale Zeitformen II, Marcus Schmickler<br>
 Epistemische Medien, IMM, RSH<br>
 16 Apr 2024 <br>
 <br>
-<em>»Let it be ...«</em> Ein Bericht über James Tenney und seinen Essay »John Cage and the Theory of Harmony« (1983)<br>
-<em>Mediale Zeitformen II</em>, Marcus Schmickler<br>
-Epistemische Medien, IMM, RSH<br>
-25 May 2021<br>
+<em>»Let it be ...«</em> über James Tenney und seinen Essay »John Cage and the Theory of Harmony(1983)« <br>
+Mediale Zeitformen II, Marcus Schmickler <br>
+Epistemische Medien, IMM, RSH <br>
+25 May 2021 <br>
 <br>
-<em>»Der nullte Körper«</em><br>
-<em>Form und Formalismus-entwendete Mathematik</em>, Prof. Julian Rohrhuber / Dr. Tzuchien Tho<br>
+<em>»Der nullte Körper«</em> <br>
+Form und Formalismus "Entwendete Mathematik", Prof. Julian Rohrhuber / Dr. Tzuchien Tho <br>
 Epistemische Medien, IMM, RSH<br>
 13 Apr 2021 <br>
 <br>
