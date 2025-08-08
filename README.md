@@ -33,6 +33,8 @@ Installation performance w/ Joseph Baader <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
+<em>Solo</em> <br>
+23 Oct 2025, Algomystica, Panke Berlin <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
 17 Sept 2025, Bruitkasten, Köln <br>
 <br>
