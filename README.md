@@ -35,6 +35,7 @@ Installation performance w/ Joseph Baader <br>
 <br>
 <em>Solo</em> <br>
 23 Oct 2025, Algomystica, Panke Berlin <br>
+<br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
 17 Sept 2025, Bruitkasten, Köln <br>
 <br>
