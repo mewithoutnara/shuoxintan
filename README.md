@@ -363,7 +363,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
-Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 <br>
+Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_contributions/shuoxin_tan_joseph_baader/)** <br>
 Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
 Sound Arguments | Orpheus Instituut Gent, 2024 <br>
 Darmstädter Ferienkurse | Internationales Musikinstitut, 2023 <br>
