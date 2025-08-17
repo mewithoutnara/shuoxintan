@@ -341,7 +341,8 @@ by Edward Sanderson **[.](https://phd.escdotdot.com/escdotdot-presents/ava-bunke
 Kolloquium, Prof. Julian Rohrhuber <br>
 Epistemische Medien, IMM, RSH <br>
 07 Jul 2025 <br>
-<em>»l'un-en-moins (one-less)«</em> Lecture performance of Jacques Lacan and his writing »Rings of String« <br>
+<br>
+<em>»l'un-en-moins (one-less)«</em> Lecture performance of Jacques Lacan and his writing »Rings of String« **[.](https://www.youtube.com/watch?v=KWxlCxdfNA0)** <br>
 Kolloquium, Prof. Julian Rohrhuber <br>
 Epistemische Medien, IMM, RSH <br>
 12 Jun 2024 <br>
