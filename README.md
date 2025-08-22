@@ -21,20 +21,25 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2026** <br>
-<em>(De)composition of Inside- and Outsideness Sound Synthesis as **Point, Surface and Twist** </em> <br>
+Computer music performance <br>
+Jun 2026 <br>
+Jauna Muzika Festival, Vilnius, Lithuania
+<br>
+<em>**Point, Surface and Twist**</em> <br>
 Installation performance w/ Joseph Baader <br>
-17-19 Jan 2026<br>
+17-19 Jan 2026 <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
 **2025** <br>
 <em>Duo</em>, w/ Hanna Schoerken <br>
-08 Nov 2025, Neue Musik Zentrale, Essen <br>
+08 Nov 2025, <em>Voicescape</em>, Neue Musik Zentrale, Essen <br>
 <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
-<em>Solo</em> <br>
-23 Oct 2025, Algomystica, Panke Berlin <br>
+<em>Computer music performance</em> <br>
+23 Oct 2025, <em>Algomystica</em>, Panke, Berlin <br>
+01 Oct 2025, KM28, Berlin <br>
 <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
 17 Sept 2025, Bruitkasten, Köln <br>
