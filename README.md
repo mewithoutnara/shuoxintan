@@ -23,7 +23,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 **2026** <br>
 Computer music performance <br>
 Jun 2026 <br>
-Jauna Muzika Festival, Vilnius, Lithuania
+Jauna Muzika Festival, Vilnius, Lithuania <br>
 <br>
 <em>**Point, Surface and Twist**</em> <br>
 Installation performance w/ Joseph Baader <br>
@@ -37,7 +37,7 @@ Installation performance w/ Joseph Baader <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
-<em>Computer music performance</em> <br>
+Computer music performance <br>
 23 Oct 2025, <em>Algomystica</em>, Panke, Berlin <br>
 01 Oct 2025, KM28, Berlin <br>
 <br>
