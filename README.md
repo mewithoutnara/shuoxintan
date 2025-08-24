@@ -39,6 +39,7 @@ Installation performance w/ Joseph Baader <br>
 <br>
 Computer music performance <br>
 23 Oct 2025, <em>Algomystica</em>, Panke, Berlin <br>
+09 Oct 2025, Richten25, Berlin <br>
 01 Oct 2025, KM28, Berlin <br>
 <br>
 <em>Duo</em>, w/ Jun-Y Ciao <br>
