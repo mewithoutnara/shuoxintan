@@ -37,7 +37,7 @@ Installation performance w/ Joseph Baader <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
-Computer music performance <br>
+**Berlin mini tour** <br>
 23 Oct 2025, <em>Algomystica</em>, Panke, Berlin <br>
 09 Oct 2025, Richten25, Berlin <br>
 01 Oct 2025, KM28, Berlin <br>
@@ -49,14 +49,12 @@ Computer music performance <br>
 w/ Matthias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao, Fabian Neubauer, Ketonge <br>
 26 Aug 2025, Tersteegenkirche Köln-Dünnwald <br>
 <br>
-<em>**Point, Surface and Twist**</em> <br>
-Lecture performance w/ Joseph Baader <br>
-10 Jul 2025, Sommerfest Klang und Realität 2025, IMM Düsseldorf <br>
-<br>
 <em>Duo</em>, w/ Spiral <br>
 28 Jun 2025, Living room, London <br>
 <em>Duo</em>, w/ Li Song **[.](https://computer.notimportant.org/)** <br>
 27 Jun 2025, Hundred Years Gallery, London <br>
+<em>Trio</em>, w/ Naoki Nomoto, Li Song <br>
+26 Jun 2025, Walthamstow marshes, London <br>
 <br>
 <em>Duo</em>, w/ Tom Soloveitzik <br>
 <em>Trio</em>, w/ Georg Wissel, Dušica Cajlan <br>
