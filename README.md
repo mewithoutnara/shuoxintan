@@ -21,7 +21,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2026** <br>
-Computer music performance <br>
+Performance <br>
 Jun 2026 <br>
 Jauna Muzika Festival, Vilnius, Lithuania <br>
 <br>
