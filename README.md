@@ -23,7 +23,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 **2026** <br>
 Performance <br>
 Jun 2026 <br>
-Jauna Muzika Festival, Vilnius, Lithuania <br>
+Proginė Festival, Vilnius, Lithuania <br>
 <br>
 <em>**Point, Surface and Twist**</em> <br>
 Installation performance w/ Joseph Baader <br>
