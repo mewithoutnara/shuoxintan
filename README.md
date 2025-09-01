@@ -42,9 +42,6 @@ Installation performance w/ Joseph Baader <br>
 09 Oct 2025, Richten25, Berlin <br>
 01 Oct 2025, KM28, Berlin <br>
 <br>
-<em>Duo</em>, w/ Jun-Y Ciao <br>
-17 Sept 2025, Bruitkasten, Köln <br>
-<br>
 <em>Septet</em>, Random Expectation <br>
 w/ Matthias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao, Fabian Neubauer, Ketonge <br>
 26 Aug 2025, Tersteegenkirche Köln-Dünnwald <br>
