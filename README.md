@@ -38,9 +38,9 @@ Installation performance w/ Joseph Baader <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
 **Berlin mini tour** <br>
-23 Oct 2025, <em>Algomystica</em>, Panke, Berlin <br>
-09 Oct 2025, Richten25, Berlin <br>
-01 Oct 2025, KM28, Berlin <br>
+23 Oct 2025, Solo, <em>Algomystica</em>, Panke <br>
+09 Oct 2025, Duo w/ Jun-Y Ciao, Richten25 <br>
+01 Oct 2025, Solo, KM28 <br>
 <br>
 <em>Septet</em>, Random Expectation <br>
 w/ Matthias Kaiser, Simon Rummel, Li-Chin Li, Jun-Y Ciao, Fabian Neubauer, Ketonge <br>
