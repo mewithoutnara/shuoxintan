@@ -30,6 +30,9 @@ Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026 <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
+Solo performance <br>
+09 Jan 2026, Deutscher Komponist:innenverband, Hamburg <br>
+<br>
 **2025** <br>
 <em>Duo</em>, w/ Hanna Schoerken <br>
 08 Nov 2025, <em>Voicescape</em>, Neue Musik Zentrale, Essen <br>
