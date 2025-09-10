@@ -43,6 +43,7 @@ Solo performance <br>
 **Berlin mini tour** <br>
 23 Oct 2025, Solo, <em>Algomystica</em>, Panke <br>
 09 Oct 2025, Duo w/ Jun-Y Ciao, Richten25 <br>
+04 Oct 2025, Trio, encounters x uchu <br>
 01 Oct 2025, Solo, KM28 <br>
 <br>
 <em>Septet</em>, Random Expectation <br>
