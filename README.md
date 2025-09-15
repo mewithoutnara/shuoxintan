@@ -40,10 +40,10 @@ Solo performance <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
-**Berlin mini tour** <br>
+**Berlin, Oct.** <br>
 23 Oct 2025, Solo, <em>Algomystica</em>, Panke <br>
 09 Oct 2025, Duo w/ Jun-Y Ciao, Richten25 <br>
-04 Oct 2025, Trio, encounters x uchu <br>
+04 Oct 2025, Duo w/ Liz Allbee, encounters x uchu <br>
 01 Oct 2025, Solo, KM28 <br>
 <br>
 <em>Septet</em>, Random Expectation <br>
