@@ -34,11 +34,17 @@ Solo performance <br>
 09 Jan 2026, Deutscher Komponist:innenverband, Hamburg <br>
 <br>
 **2025** <br>
+<em>Duo</em>, w/ Jun-Y Ciao <br>
+17 Dec 2025, Bruitkasten, Köln <br>
+<br>
 <em>Duo</em>, w/ Hanna Schoerken <br>
 08 Nov 2025, <em>Voicescape</em>, Neue Musik Zentrale, Essen <br>
 <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
+<br>
+<em>Septet</em>, w/ Fabian Neubauer, Bastian Buddenbrock, Sun Yizhou, Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
+12 Oct 2025, <em>Solips</em>, Wuppertal <br>
 <br>
 **Berlin, Oct.** <br>
 23 Oct 2025, Solo, <em>Algomystica</em>, Panke <br>
