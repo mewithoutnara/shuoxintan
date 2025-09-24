@@ -43,6 +43,9 @@ Solo performance <br>
 <em>Duo</em>, w/ Li-Chin Li <br>
 05 Nov 2025, Bruitkasten, Köln <br>
 <br>
+<em>Quartet</em>, w/ Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
+19 Oct 2025, Hausboot, Bonn <br>
+<br>
 <em>Septet</em>, w/ Fabian Neubauer, Bastian Buddenbrock, Sun Yizhou, Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
 12 Oct 2025, <em>Solips</em>, Wuppertal <br>
 <br>
