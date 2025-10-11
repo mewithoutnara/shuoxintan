@@ -378,6 +378,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
+(De)composition of Inside- and Outsideness - Sound Synthesis as Point, Surface and Twist | Recherchestipendium Kunststiftung NRW, 2026 <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_contributions/shuoxin_tan_joseph_baader/)** <br>
 Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
 Sound Arguments | Orpheus Instituut Gent, 2024 <br>
