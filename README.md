@@ -34,14 +34,14 @@ Solo performance <br>
 09 Jan 2026, Deutscher Komponist:innenverband, Hamburg <br>
 <br>
 **2025** <br>
-<em>Duo</em>, w/ Jun-Y Ciao <br>
-17 Dec 2025, Bruitkasten, Köln <br>
+<em>Quartet</em>, w/ Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
+07 Dec 2025, <em>Änderungsschreiberei</em>, Köln <br>
 <br>
 <em>Duo</em>, w/ Hanna Schoerken <br>
 08 Nov 2025, <em>Voicescape</em>, Neue Musik Zentrale, Essen <br>
 <br>
-<em>Duo</em>, w/ Li-Chin Li <br>
-05 Nov 2025, Bruitkasten, Köln <br>
+<em>Duo</em>, w/ Jun-Y Ciao <br>
+05 Nov 2025, <em>Bruitkasten</em>, Köln <br>
 <br>
 <em>Quartet</em>, w/ Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
 19 Oct 2025, Hausboot, Bonn <br>
