@@ -37,6 +37,9 @@ Solo performance <br>
 <em>Quartet</em>, w/ Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
 07 Dec 2025, <em>Änderungsschreiberei</em>, Köln <br>
 <br>
+<em>Computermusic Solo</em> <br>
+04 Dec 2025, <em>Klang und Raum</em>, 674 FM, Köln <br>
+<br>
 <em>Duo</em>, w/ Hanna Schoerken <br>
 08 Nov 2025, <em>Voicescape</em>, Neue Musik Zentrale, Essen <br>
 <br>
