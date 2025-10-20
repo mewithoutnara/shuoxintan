@@ -30,10 +30,13 @@ Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026 <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
-Solo performance <br>
+<em>Solo</em> | lecture performance <br>
 09 Jan 2026, Deutscher Komponist:innenverband, Hamburg <br>
 <br>
 **2025** <br>
+<em>Duo</em> | talk + performance w/ Jun-Y Ciao <br>
+11 Dec 2025, <em>Pianissimo</em>, Die Kölner Gesellschaft für Neue Musik e.V. Köln <br>
+<br>
 <em>Quartet</em>, w/ Teresa Coll, Jun-Y Ciao, Matthias Kaiser <br>
 07 Dec 2025, <em>Änderungsschreiberei</em>, Köln <br>
 <br>
