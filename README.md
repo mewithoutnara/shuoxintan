@@ -25,6 +25,9 @@ Performance <br>
 Jun 2026 <br>
 Proginė Festival, Vilnius, Lithuania <br>
 <br>
+<em>Solo</em> <br>
+28 Jan 2026, Salon des Amateurs, Düsseldorf <br>
+<br>
 <em>**Point, Surface and Twist**</em> <br>
 Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026 <br>
