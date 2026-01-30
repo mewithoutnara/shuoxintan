@@ -21,9 +21,11 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2026** <br>
-Performance <br>
-Jun 2026 <br>
-Proginė Festival, Vilnius, Lithuania <br>
+Upcoming Performance <br>
+Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
+06 May 2026, Hörbar, Hamburg <br>
+03 May 2026, liebig12, Berlin <br>
+02 May 2026, Kult, Berlin <br>
 <br>
 <em>Solo</em> <br>
 28 Jan 2026, Salon des Amateurs, Düsseldorf <br>
