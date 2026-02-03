@@ -22,7 +22,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 
 **2026** <br>
 <br>
-<em>**Fadenringe** | Abschlusskonzert</em> <br>
+<em>**Fadenringe / Rings of Strings**</em> | master's degree concert <br>
 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
