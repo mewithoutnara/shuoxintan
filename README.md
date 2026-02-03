@@ -22,6 +22,8 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 
 **2026** <br>
 Upcoming Performance <br>
+<em>**Fadenringe**</em> <br>
+Jul 2026, Abschlusskonzert, St. Albertus Magnus, Düsseldorf <br>
 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
 06 May 2026, Hörbar, Hamburg <br>
 03 May 2026, liebig12, Berlin <br>
