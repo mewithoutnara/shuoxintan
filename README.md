@@ -37,7 +37,7 @@ Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <em>Solo</em> <br>
 02 May 2026, Kult, Berlin <br>
 <br>
-<em>Septet Improvisation</em> <br>
+<em>Campen</em> | All night long improvisation <br>
 24 Apr 2026, Solips, Wuppertal <br>
 <br>
 <em>Solo</em> <br>
