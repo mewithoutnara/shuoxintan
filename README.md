@@ -3,7 +3,7 @@
                                                                                                               
 # Shuoxin Tan
 
-Born in Beijing, is a computer music composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, algorithmic acoustics, and mathematical formalisation. <br>
+Born in Beijing, is a computer music composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, algorithmic acoustics, and mathematical formalisation. <br>
 <br>
 How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception. <br>
 <br>
