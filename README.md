@@ -28,7 +28,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Solo</em> <br>
 10-12 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
 <br>
-<em>Solo</em> <br>
+<em>Duo</em>, w/ Xiang <br>
 06 May 2026, Hörbar, Hamburg <br>
 <br>
 <em>Duo</em>, w/ Takako Suzuki <br>
