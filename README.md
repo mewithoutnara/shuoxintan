@@ -48,7 +48,7 @@ Installation performance w/ Joseph Baader <br>
 17-19 Jan 2026 <br>
 **Speculative Sound Synthesis** | Institute of Electronic Music and Acoustics, University of Music and Performing Arts Graz, Austria <br>
 <br>
-<em>Solo</em> | lecture performance <br>
+<em>Solo + Duo</em> w/ Dong Zhou <br>
 09 Jan 2026, Deutscher Komponist:innenverband, Hamburg <br>
 <br>
 **2025** <br>
