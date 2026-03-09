@@ -33,10 +33,13 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Duo</em>, w/ Xiang <br>
 06 May 2026, Hörbar, Hamburg <br>
 <br>
+<em>Trio</em> w/ Isak Han, Li Song <br>
+04 May 2026, BBK, Berlin <br>
+<br>
 <em>Duo</em>, w/ Takako Suzuki <br>
 03 May 2026, liebig12, Berlin <br>
 <br>
-<em>Solo</em> <br>
+<em>Solo + Duo</em> w/ Li Song <br>
 02 May 2026, Kult, Berlin <br>
 <br>
 <em>Campen</em> | All night long improvisation <br>
