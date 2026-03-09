@@ -21,6 +21,8 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2026** <br>
+<em>Solo + Duo</em> w/ Nika Son <br>
+24 Oct 2026, Kapute Szene, Köln <br>
 <br>
 <em>**Fadenringe**</em> | master's degree concert <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
