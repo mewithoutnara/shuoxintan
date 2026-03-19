@@ -45,6 +45,9 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Campen</em> | All night long improvisation <br>
 24 Apr 2026, Solips, Wuppertal <br>
 <br>
+<em>mewithoutnara trio</em> w/ Jun-y Ciao, Sebastian von der Heide <br>
+08 Apr 2026, Die Verabredung, Köln <br>
+<br>
 <em>Solo</em> <br>
 28 Jan 2026, Salon des Amateurs, Düsseldorf <br>
 <br>
