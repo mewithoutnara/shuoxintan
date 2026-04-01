@@ -28,7 +28,10 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
-10-12 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
+11 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
+<br>
+<em>Workshop</em>, [ _  _  _ ] <br>
+09 May 2026, Gemeinde, Köln <br>
 <br>
 <em>Duo</em>, w/ Xiang <br>
 06 May 2026, Hörbar, Hamburg <br>
