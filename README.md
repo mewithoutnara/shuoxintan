@@ -3,7 +3,7 @@
                                                                                                               
 # Shuoxin Tan
 
-Born in Beijing, is a computer music composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, algorithmic acoustics, and mathematical formalisation. <br>
+Born in Beijing, is a composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, and mathematical approximation. <br>
 <br>
 How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception. <br>
 <br>
@@ -24,7 +24,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
-<em>**Fadenringe**</em> | master's degree concert <br>
+<em>**Extimacy**</em> | master's degree concert <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
@@ -42,11 +42,8 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Duo</em>, w/ Takako Suzuki <br>
 03 May 2026, liebig12, Berlin <br>
 <br>
-<em>Solo + Duo</em> w/ Li Song <br>
+<em>Duo</em> w/ Li Song <br>
 02 May 2026, Kult, Berlin <br>
-<br>
-<em>Campen</em> | All night long improvisation <br>
-24 Apr 2026, Solips, Wuppertal <br>
 <br>
 <em>mewithoutnara trio</em> w/ Jun-y Ciao, Sebastian von der Heide <br>
 08 Apr 2026, Die Verabredung, Köln <br>
