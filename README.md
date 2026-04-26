@@ -31,6 +31,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 11 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
 <br>
 <em>Workshop</em>, [ _  _  _ ] <br>
+Kollaborative Algorithmen: Ein Workshop zu vernetzter Musik <br>
 09 May 2026, Gemeinde, Köln <br>
 <br>
 <em>Duo</em>, w/ Xiang <br>
