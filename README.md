@@ -3,13 +3,17 @@
                                                                                                               
 # Shuoxin Tan
 
-Born in Beijing, is a composer, researcher and improviser currently living and working in Cologne since September 2020. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her research currently focuses on Lacanian topology, and mathematical approximation. <br>
+
+
+Her work has been released on labels such as SUPERPANG, Infant Tree, and Zoomin’ Night, as well as in compilations by Sub Rosa and ReiheM. An upcoming release with Yan Jun will appear on Un Poco Fría.
+
+Born in Beijing, is a composer, researcher and improviser based in Cologne. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her current research focuses on Lacanian topology and mathematical approximation, driven by a curiosity about how “purloined” theoretical knowledge may be approached within artistic practice. She works across composition and improvisation in collaboration with instrumentalists. <br>
 <br>
-How to apply „purloined“ theoretical knowledge into artistic practice is her curiosity. She approaches and works between composition and improvisation, which often happens in specific space, intertwined with the exploration of physical movement and auditory perception. <br>
+Using SuperCollider — and occasionally the organ — her musical practice explores woven forms of sound through spectral resonances as points of contact, investigating how auditory perception as spatial relations are sutured in time through listening. <br>
 <br>
 Influenced by Lacanian topology, namely the Borromean rings, she co-founded the network-music ensemble and research group [[ _  _  _ ]](https://github.com/luuiii/collaborative_algorithm) with [Jia Liu](https://jialiu.de/) in Karlsruhe and [Song Li](https://notimportant.org/) in London. Initiated during the Covid lockdown in November 2020, the ensemble developed a collaborative, algorithmic network-music performance system from scratch using the SuperCollider programming language. Their research and practice embody the new form of computer music performance with theoretical thinking. <br>
 <br>
-Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.bandcamp.com/album/-), [Infant Tree (UK)](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night (CN)](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), as well as in compilations by [Sub Rosa (BE) ](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [reiheM (DE)](https://www.reihe-m.de/?page_id=1023). She has performed at events and venues including the Ambient Festival Cologne, ICLC Utrecht, Himera Festival Turku, and numerous independent experimental series in Europe and China.
+Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.bandcamp.com/album/-), [Infant Tree (UK)](https://infanttree.bandcamp.com/album/from-two-roots) and [Zoomin’ Night (CN)](https://zoominnight.bandcamp.com/album/durch-den-vorhang-gehen), as well as in compilations by [Sub Rosa (BE) ](https://subrosalabel.bandcamp.com/album/an-anthology-of-chinese-experimental-music-1992-2008) and [reiheM (DE)](https://www.reihe-m.de/?page_id=1023). She has performed at events and venues including the Ambient Festival Cologne, ICLC Utrecht, Himera Festival Turku, proginė Vilnius. An upcoming release with Yan Jun will appear on Un Poco Fría. <br>
 <br>
 <br>
 [bandcamp](https://mewithoutnara.bandcamp.com/)<br>
@@ -23,6 +27,9 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 **2026** <br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
+<br>
+<em>Duo</em> w/ Fabian Neubauer <br>
+06 Sep 2026, Solips, Wuppertal <br>
 <br>
 <em>**Extimacy**</em> | master's degree concert <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
