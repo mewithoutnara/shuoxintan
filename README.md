@@ -4,9 +4,6 @@
 # Shuoxin Tan
 
 
-
-Her work has been released on labels such as SUPERPANG, Infant Tree, and Zoomin’ Night, as well as in compilations by Sub Rosa and ReiheM. An upcoming release with Yan Jun will appear on Un Poco Fría.
-
 Born in Beijing, is a composer, researcher and improviser based in Cologne. She has been studying Epistemic Media at the Institute for Music and Media of Robert Schumann Hochschule Düsseldorf with Prof. Julian Rohrhuber and composer Marcus Schmickler. Her current research focuses on Lacanian topology and mathematical approximation, driven by a curiosity about how “purloined” theoretical knowledge may be approached within artistic practice. She works across composition and improvisation in collaboration with instrumentalists. <br>
 <br>
 Using SuperCollider — and occasionally the organ — her musical practice explores woven forms of sound through spectral resonances as points of contact, investigating how auditory perception as spatial relations are sutured in time through listening. <br>
