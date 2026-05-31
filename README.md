@@ -25,7 +25,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
-<em>Duo</em> w/ Fabian Neubauer <br>
+<em>Duo</em> w/ Hanna Schörken <br>
 06 Sep 2026, Solips, Wuppertal <br>
 <br>
 <em>**Extimacy**</em> | master's degree concert <br>
