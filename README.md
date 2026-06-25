@@ -21,12 +21,22 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 
 ## **Events** 
 
+**2027** <br>
+<em>Solo</em>
+Experimentik, Berlin
+
 **2026** <br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
 <em>Duo</em> w/ Hanna Schörken <br>
 06 Sep 2026, Solips, Wuppertal <br>
+<br>
+Improvisation w/ PART Ensemble <br>
+02 Aug 2026, K7a Köln <br>
+<br>
+<em>Duo</em> w/ Joseph Baader <br>
+30 Jul 2026, ICAD Conferences, Bielefeld <br>
 <br>
 <em>**Extimacy**</em> | master's degree concert <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
