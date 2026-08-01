@@ -32,6 +32,9 @@ Festival March 12-14 @ HKW, Berlin <br>
 Experimentik, Berlin <br>
 <br>
 **2026** <br>
+<em>2 Solos</em> w/ Dong Zhou <br>
+03 Dec 2026, a-musik, Köln <br>
+<br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
