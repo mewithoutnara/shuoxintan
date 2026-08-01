@@ -47,7 +47,7 @@ Experimentik, Berlin <br>
 <em>Solo</em> <br>
 18 Sep 2026, Encounters Evening Concert Series, Berlin <br>
 <br>
-<em>Duo</em> w/ Hanna Schörken <br>
+<em>Improvisation</em> w/ Lisa Ullén, Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
 06 Sep 2026, Solips, Wuppertal <br>
 <br>
 Solo + Improvisation w/ PART Ensemble <br>
@@ -69,7 +69,7 @@ Kollaborative Algorithmen: Ein Workshop zu vernetzter Musik <br>
 <em>Duo</em>, w/ Xiang <br>
 06 May 2026, Hörbar, Hamburg <br>
 <br>
-<em>Trio</em> w/ Isak Han, Li Song <br>
+<em>Laptop Quartet Unplugged</em> w/ Andrejs Poikāns, Isak Han, Li Song <br>
 04 May 2026, BBK, Berlin <br>
 <br>
 <em>Duo</em>, w/ Takako Suzuki <br>
