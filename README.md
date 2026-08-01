@@ -36,18 +36,24 @@ Experimentik, Berlin <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
 <em>Solo</em> <br>
-18 Sep 2026, Encounter, Berlin <br>
+10 Okt 2026, Tag der Offenen Tür, IMM, Düsseldorf <br>
+<br>
+<em>Solo</em> <br>
+01 Okt 2026, AFF Concert Series, Church Gada Florence, Italy <br>
+<br>
+<em>Solo</em> <br>
+18 Sep 2026, Encounters Evening Concert Series, Berlin <br>
 <br>
 <em>Duo</em> w/ Hanna Schörken <br>
 06 Sep 2026, Solips, Wuppertal <br>
 <br>
-Improvisation w/ PART Ensemble <br>
-02 Aug 2026, K7a Köln <br>
+Solo + Improvisation w/ PART Ensemble <br>
+02 Aug 2026, Kunstraum Heilig Geist, Essen <br>
 <br>
 <em>Duo</em> w/ Joseph Baader <br>
 30 Jul 2026, ICAD Conferences, Bielefeld <br>
 <br>
-<em>**Extimacy**</em> | master's degree concert <br>
+<em>**Fadenringe**</em> | master's degree concert <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
