@@ -42,16 +42,19 @@ Experimentik, Berlin <br>
 10 Okt 2026, Tag der Offenen Tür, IMM, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
-01 Okt 2026, AFF Concert Series, Church Gada Florence, Italy <br>
+01 Okt 2026, <em>Affektenlehre + Golem</em> Concert Series, Church Gada Florence, Italy <br>
 <br>
 <em>Solo</em> <br>
-18 Sep 2026, Encounters Evening Concert Series, Berlin <br>
+18 Sep 2026, <em>Encounters</em> Evening Concert Series, Berlin <br>
 <br>
-<em>Improvisation</em> w/ Lisa Ullén, Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
-06 Sep 2026, Solips, Wuppertal <br>
+<em>Solo + Improvisation</em> <br>
+08 Sep 2026, <em>o!-Festival</em>, Essen <br>
+<br>
+<em>Duo</em> w/ Lisa Ullén, Tutti Impro. w/ Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
+06 Sep 2026, <em>Solips</em>, Wuppertal <br>
 <br>
 Solo + Improvisation w/ PART Ensemble <br>
-02 Aug 2026, Kunstraum Heilig Geist, Essen <br>
+02 Aug 2026, <em>Refugium</em>, Kunstraum Heilig Geist Essen <br>
 <br>
 <em>Duo</em> w/ Joseph Baader <br>
 30 Jul 2026, ICAD Conferences, Bielefeld <br>
@@ -60,7 +63,7 @@ Solo + Improvisation w/ PART Ensemble <br>
 15 Jul 2026, St. Albertus Magnus, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
-11 Jun 2026, Proginė Festival, Vilnius, Lithuania <br>
+11 Jun 2026, <em>Proginė Festival</em>, Vilnius, Lithuania <br>
 <br>
 <em>Workshop</em>, [ _  _  _ ] <br>
 Kollaborative Algorithmen: Ein Workshop zu vernetzter Musik <br>
