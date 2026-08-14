@@ -47,13 +47,16 @@ Experimentik, Berlin <br>
 <em>Solo</em> <br>
 18 Sep 2026, <em>Encounters</em> Evening Concert Series, Berlin <br>
 <br>
-<em>Solo + Improvisation</em> <br>
-08 Sep 2026, <em>o!-Festival</em>, Essen <br>
+<em>Solo + Improvisation</em> w/ PART Ensemble <br>
+08 Sep 2026, <em>o!-Festival</em>, Christuskirche Kupferdreh Essen<br>
 <br>
 <em>Duo</em> w/ Lisa Ullén, Tutti Impro. w/ Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
 06 Sep 2026, <em>Solips</em>, Wuppertal <br>
 <br>
-Solo + Improvisation w/ PART Ensemble <br>
+<em>Duo</em> w/ Matthias Geuting, Positive organ + Laptop <br>
+04 Sep 2026, <em>o!-Festival</em>, Kunstraum Heilig Geist Essen <br>
+<br>
+Solo + Trio w/ PART Ensemble <br>
 02 Aug 2026, <em>Refugium</em>, Kunstraum Heilig Geist Essen <br>
 <br>
 <em>Duo</em> w/ Joseph Baader <br>
