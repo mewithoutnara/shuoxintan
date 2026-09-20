@@ -35,6 +35,9 @@ Experimentik, Berlin <br>
 <em>2 Solos</em> w/ Dong Zhou <br>
 03 Dec 2026, a-musik, Köln <br>
 <br>
+<em>ensemble [ _  _  _ ] </em> <br>
+15 Nov 2026, Badischer Kunstverein, Karlsruhe <br>
+<br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, Kapute Szene, Köln <br>
 <br>
