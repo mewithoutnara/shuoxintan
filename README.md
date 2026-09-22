@@ -46,7 +46,7 @@ Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 10 Okt 2026, Tag der Offenen Tür, IMM, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
-01 Okt 2026, <em>Affektenlehre x Golem</em>, Church Gada Florence, Italy <br>
+01 Okt 2026, <em>Affektenlehre x Golem</em>, Church Gada Firenze, Italy <br>
 <br>
 <em>Solo</em> <br>
 24 Sep 2026, Die Verabredung, Cologne <br>
