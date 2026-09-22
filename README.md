@@ -22,30 +22,31 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2027** <br>
-<em>Improvisation</em> <br>
+<em>Residency Kathrin Preis</em> <br>
 June, Jazzinstitut Darmstadt <br>
 <br>
 <em>Solo</em> <br>
-Festival March 12-14 @ HKW, Berlin <br>
+Festival April 02-04 @ HKW, Berlin <br>
 <br>
 <em>Solo</em> <br>
-Experimentik, Berlin <br>
+TBC, Experimentik, Berlin <br>
 <br>
 **2026** <br>
 <em>2 Solos</em> w/ Dong Zhou <br>
 03 Dec 2026, a-musik, Köln <br>
 <br>
 <em>ensemble [ _  _  _ ] </em> <br>
+Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 15 Nov 2026, Badischer Kunstverein, Karlsruhe <br>
 <br>
 <em>Solo + Duo</em> w/ Nika Son <br>
-24 Oct 2026, Kapute Szene, Köln <br>
+24 Oct 2026, <em>Der Klang von Kaiwa VII</em>, Kapute Szene, Köln <br>
 <br>
 <em>Solo</em> <br>
 10 Okt 2026, Tag der Offenen Tür, IMM, Düsseldorf <br>
 <br>
 <em>Solo</em> <br>
-01 Okt 2026, <em>Affektenlehre + Golem</em> Concert Series, Church Gada Florence, Italy <br>
+01 Okt 2026, <em>Affektenlehre x Golem</em>, Church Gada Florence, Italy <br>
 <br>
 <em>Solo</em> <br>
 24 Sep 2026, Die Verabredung, Cologne <br>
@@ -457,6 +458,7 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
+Annäherung | Arbeits- und Recherchestipendium der Stadt Köln, 2026 <br>
 (De)composition of Inside- and Outsideness - Sound Synthesis as Point, Surface and Twist | Recherchestipendium Kunststiftung NRW, 2026 <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_contributions/shuoxin_tan_joseph_baader/)** <br>
 Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
