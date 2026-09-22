@@ -62,10 +62,6 @@ Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 <em>Duo</em> w/ Lisa Ullén + <em>Tutti</em> w/ Hao Zheng, Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
 06 Sep 2026, <em>Solips</em>, Wuppertal <br>
 <br>
-<em>Duo</em> w/ Matthias Geuting <br>
-Chest organ, laptop <br>
-04 Sep 2026, <em>o!-Festival</em>, Kunstraum Heilig Geist Essen <br>
-<br>
 Solo + Trio w/ PART Ensemble <br>
 02 Aug 2026, <em>Refugium</em>, Kunstraum Heilig Geist Essen <br>
 <br>
