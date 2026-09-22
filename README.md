@@ -55,7 +55,7 @@ Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 18 Sep 2026, <em>Encounters</em> Evening Concert Series, Berlin <br>
 <br>
 <em>2 concerts</em> w/ PART Ensemble <br>
-<em>o!-Festival</em> <br>
+<em>o!-Festival for the organs in Essen</em> <br>
 04 Sep 2026, Kunstraum Heilig Geist, Essen-Katernberg <br>
 08 Sep 2026, Christuskirche Essen-Kupferdreh <br>
 <br>
