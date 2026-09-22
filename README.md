@@ -23,7 +23,7 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 
 **2027** <br>
 <em>Residency Kathrin Preis</em> <br>
-June, Jazzinstitut Darmstadt <br>
+June 6-13, Jazzinstitut Darmstadt <br>
 <br>
 <em>Solo</em> <br>
 Festival April 02-04 @ HKW, Berlin <br>
@@ -54,9 +54,10 @@ Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 <em>Solo</em> <br>
 18 Sep 2026, <em>Encounters</em> Evening Concert Series, Berlin <br>
 <br>
-<em>Solo + Quartet</em> w/ PART Ensemble <br>
-Organetto, pipe organ, flute, laptop <br>
-08 Sep 2026, <em>o!-Festival</em>, Christuskirche Kupferdreh Essen<br>
+<em>2 concerts</em> w/ PART Ensemble <br>
+<em>o!-Festival</em>
+04 Sep 2026, Kunstraum Heilig Geist, Essen-Katernberg <br>
+08 Sep 2026, Christuskirche Essen-Kupferdreh <br>
 <br>
 <em>Duo</em> w/ Lisa Ullén + <em>Tutti</em> w/ Hao Zheng, Eric Wong, Hanna Schörken, Basti und Fabian Neubauer <br>
 06 Sep 2026, <em>Solips</em>, Wuppertal <br>
