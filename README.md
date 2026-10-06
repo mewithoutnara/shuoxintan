@@ -39,6 +39,9 @@ TBC, Experimentik, Berlin <br>
 Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 15 Nov 2026, Badischer Kunstverein, Karlsruhe <br>
 <br>
+<br> Solo performance for exhibition <br>
+07 Nov 2026, Leibzig <br>
+<br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, <em>Der Klang von Kaiwa VII</em>, Kapute Szene, Köln <br>
 <br>
