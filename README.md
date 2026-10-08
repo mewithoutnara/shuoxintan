@@ -46,7 +46,7 @@ Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 Solo performance for exhibition <br>
 07 Nov 2026, Leibzig <br>
 <br>
-Organ performance <br>
+Duo organ performance w/ Jun-y Ciao  <br>
 06 Nov 2026, Altkatholische Friedenskirche, Essen <br>
 <br>
 Duo performance w/ Francesco Toninelli <br>
