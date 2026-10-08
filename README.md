@@ -35,6 +35,10 @@ TBC, Experimentik, Berlin <br>
 <em>2 Solos</em> w/ Dong Zhou <br>
 03 Dec 2026, a-musik, Köln <br>
 <br>
+<em> Variable Apparente </em> | computer music improvisation as fixed-media <br>
+Diffusion Festival <br>
+Nov 2026, High Zero Foundation, Baltimore USA <br>
+<br>
 <em>ensemble [ _  _  _ ] </em> <br>
 Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 15 Nov 2026, Badischer Kunstverein, Karlsruhe <br>
@@ -45,22 +49,22 @@ Solo performance for exhibition <br>
 Organ performance <br>
 06 Nov 2026, Altkatholische Friedenskirche, Essen <br>
 <br>
-Duo performance <br>
+Duo performance w/ Francesco Toninelli <br>
 04 Nov 2026, Bruitkasten, Köln <br>
 <br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, <em>Der Klang von Kaiwa VII</em>, Kapute Szene, Köln <br>
 <br>
-<em>Solo</em> <br>
+<em>Narrative Fountain</em> | solo computer music <br>
 10 Oct 2026, Tag der Offenen Tür, IMM, Düsseldorf <br>
 <br>
-<em>Solo</em> <br>
+<em>from two roots + narrative fountain </em> | solo computer music <br>
 01 Okt 2026, <em>Affektenlehre x Golem</em>, Church Gada Firenze, Italy <br>
 <br>
-<em>Solo</em> <br>
+<em>Narrative Fountain</em> | solo computer music <br>
 24 Sep 2026, Die Verabredung, Cologne <br>
 <br>
-<em>Solo</em> <br>
+<em>Narrative Fountain</em> | solo computer music <br>
 18 Sep 2026, <em>Encounters</em> Evening Concert Series, Berlin <br>
 <br>
 <em>2 concerts</em> w/ PART Ensemble <br>
