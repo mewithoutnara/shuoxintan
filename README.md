@@ -446,7 +446,7 @@ Kolloquium, Prof. Julian Rohrhuber <br>
 Epistemische Medien, IMM, RSH <br>
 07 Jul 2025 <br>
 <br>
-<em>»l'un-en-moins (one-less)«</em> Lecture performance of Jacques Lacan and his writing »Rings of String« **[.](https://www.youtube.com/watch?v=KWxlCxdfNA0)** <br>
+<em>»l'un-en-moins (one-less)«</em> Lecture performance of Jacques Lacan and his writing »Fadenringe« **[.](https://www.youtube.com/watch?v=KWxlCxdfNA0)** <br>
 Kolloquium, Prof. Julian Rohrhuber <br>
 Epistemische Medien, IMM, RSH <br>
 12 Jun 2024 <br>
@@ -468,8 +468,10 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
-Annäherung | Arbeits- und Recherchestipendium der Stadt Köln, 2026 <br>
-(De)composition of Inside- and Outsideness - Sound Synthesis as Point, Surface and Twist | Recherchestipendium Kunststiftung NRW, 2026 <br>
+Annäherung | zur „spectral approximation“ bei Horatiu Rădulescu <br>
+Arbeits- und Recherchestipendium der Stadt Köln, 2026 <br>
+(De)composition of Inside- and Outsideness - Sound Synthesis as Point, Surface and Twist <br>
+Recherchestipendium Kunststiftung NRW, 2026 <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_contributions/shuoxin_tan_joseph_baader/)** <br>
 Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
 Sound Arguments | Orpheus Instituut Gent, 2024 <br>
