@@ -468,9 +468,9 @@ Epistemische Medien, IMM, RSH<br>
 <br>
 <br>
 ## **Scholarships and Residencies**
-Annäherung | zur „spectral approximation“ bei Horatiu Rădulescu <br>
+<em>Annäherung</em> | zur „spectral approximation“ bei Horatiu Rădulescu <br>
 Arbeits- und Recherchestipendium der Stadt Köln, 2026 <br>
-(De)composition of Inside- and Outsideness - Sound Synthesis as Point, Surface and Twist <br>
+<em>(De)composition of Inside- and Outsideness</em> | Sound Synthesis as Point, Surface and Twist <br>
 Recherchestipendium Kunststiftung NRW, 2026 <br>
 Speculative Sound Synthesis | Institute of Electronic Music and Acoustics Graz, 2025 **[.](https://speculativesoundsynthesis.iem.sh/docs/guest_contributions/shuoxin_tan_joseph_baader/)** <br>
 Speculative Sound Synthesis Symposium | Institute of Electronic Music and Acoustics Graz, 2024 **[.](https://speculative.iem.at/symposium/docs/proceedings/baader_tan/)** <br>
