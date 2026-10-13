@@ -43,14 +43,15 @@ Nov 2026, High Zero Foundation, Baltimore USA <br>
 Finissage Concert <em>Catherine Christer Hennix: Cosmological Critique</em> <br>
 15 Nov 2026, Badischer Kunstverein, Karlsruhe <br>
 <br>
-Solo performance for exhibition <br>
-07 Nov 2026, Leibzig <br>
+Solo performance <br>
+Vernissage Concert <em>Jingru Cheng / Zhan Chen</em> <br>
+07 Nov 2026, KV Leipzig <br>
 <br>
 Duo organ performance w/ Jun-y Ciao  <br>
 06 Nov 2026, Altkatholische Friedenskirche, Essen <br>
 <br>
 Duo performance w/ Francesco Toninelli <br>
-04 Nov 2026, Bruitkasten, Köln <br>
+04 Nov 2026, <em>Bruitkasten</em>, Gemeinde Köln <br>
 <br>
 <em>Solo + Duo</em> w/ Nika Son <br>
 24 Oct 2026, <em>Der Klang von Kaiwa VII</em>, Kapute Szene, Köln <br>
