@@ -22,6 +22,9 @@ Her work has been released on labels such as [SUPERPANG (IT)](https://e---e.band
 ## **Events** 
 
 **2027** <br>
+<em>Residency q-o2</em> w/ ensemble [ _  _  _ ] <br>
+September, Brussels <br>
+<br>
 <em>Residency Kathrin Preis</em> <br>
 June 6-13, Jazzinstitut Darmstadt <br>
 <br>
