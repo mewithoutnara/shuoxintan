@@ -35,6 +35,7 @@ Festival April 02-04 @ HKW, Berlin <br>
 TBC, Experimentik, Berlin <br>
 <br>
 **2026** <br>
+<em>le huit intérieur</em> | lap-top performance <br>
 <em>2 Solos</em> w/ Dong Zhou <br>
 03 Dec 2026, a-musik, Köln <br>
 <br>
