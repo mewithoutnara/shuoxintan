@@ -35,7 +35,7 @@ Festival April 02-04 @ HKW, Berlin <br>
 TBC, Experimentik, Berlin <br>
 <br>
 **2026** <br>
-<em>le huit intérieur</em> | lap-top performance <br>
+<em>le huit intérieur</em> | a lap-top performance <br>
 03 Dec 2026, a-musik, Köln <br>
 <br>
 <em> Variable Apparente </em> | computer music improvisation as fixed-media <br>
@@ -50,7 +50,7 @@ Solo performance <br>
 Vernissage Concert <em>Jingru Cheng / Zhan Chen</em> <br>
 07 Nov 2026, KV Leipzig <br>
 <br>
-Duo organ performance w/ Jun-y Ciao  <br>
+<em>Wind to wind</em> duo w/ Jun-y Ciao, pipe organ + soprano saxophone <br>
 06 Nov 2026, Altkatholische Friedenskirche, Essen <br>
 <br>
 Duo performance w/ Francesco Toninelli <br>
